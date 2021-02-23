@@ -3,7 +3,11 @@
 
 @import "{{ site.theme }}";
 
-
+.project-tagline {
+    margin-bottom: 2rem;
+    font-weight: normal;
+    opacity: 1;
+}
 
 .page-header {
   color: #606c71;
