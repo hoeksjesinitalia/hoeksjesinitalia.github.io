@@ -1,3 +1,4 @@
 # Hier vind je een overzicht van de inhoud:
 
-* [Blog 1](./BlogTemplate.md)
+* Blogs 2021
+  * [Blog 1](./BlogTemplate.md)
