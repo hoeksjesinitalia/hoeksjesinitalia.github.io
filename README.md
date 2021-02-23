@@ -4,5 +4,4 @@ Wij zijn Marion en Kees Hoeks en wat we doen etc ...
 
 * 2021
   * [Blog 1](./BlogTemplate.md)
-* 2020
-  * dit is een ander punt
+  * [Blog 2](./BlogTemplate.md)
