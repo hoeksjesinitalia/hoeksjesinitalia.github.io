@@ -1,6 +1,7 @@
-# BlogTemplate
+# BlogTemplate, dit is de titel 
+## Zo maak je een subtitel bijvoorbeeld met de datum van het blog
 
-Dit is een template bestand, zo plaats je een foto:
+Dit is een template bestand hier kan je verhaaltje typen over wat er gebeurd is of wat julle gedaan hebben, zo plaats je een foto:
 
 <p align="center"><img src="BlogTemplate/foto1.jpg" alt="Fig1" width="70%"/><br>
 <em>Hier moet de beschrijving van de foto, bijvoorbeeld gemaakt door .. in ...</em><br><br><br></p>
