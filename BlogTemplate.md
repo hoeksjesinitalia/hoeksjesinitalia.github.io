@@ -1,7 +1,7 @@
 # BlogTemplate
 
 Dit is een template bestand, zo plaats je een foto:
-/* Dit zien mensen niet */
+*/ Dit zien mensen niet /*
 <p align="center"><img src="Figures/fig1.png" alt="Fig1" width="70%"/><br>
 <em>Hier moet de beschrijving van de foto</em><br><br><br></p>
 
