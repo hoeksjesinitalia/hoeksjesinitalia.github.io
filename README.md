@@ -3,7 +3,7 @@ Naar Agrano, een dorpje (680 inwoners) bij Omegna aan het Ortameer in Piemonte. 
 
 ## Blogs
 * 2020 
-##De voorbereidingen
+## Augustus, de voorbereidingen
 
 * 2021
   * [Wandeling Februari](./WandelingFeb.md)
