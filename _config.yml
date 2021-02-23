@@ -4,3 +4,5 @@ header_sm: path/to/banner-sm.jpg
 header_med: path/to/banner-med.jpg
 header_large: path/to/banner-large.jpg
 header_xl: path/to/banner-xl.jpg
+title: myCustomTitle
+description: myCustomAndDetailedDescription
