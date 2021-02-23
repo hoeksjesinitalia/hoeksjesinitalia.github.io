@@ -2,8 +2,8 @@
 
 Dit is een template bestand, zo plaats je een foto:
 
-<p align="center"><img src="Figures/fig1.png" alt="Fig1" width="70%"/><br>
-<em>Hier moet de beschrijving van de foto</em><br><br><br></p>
+<p align="center"><img src="BlogTemplate/foto1.jpg" alt="Fig1" width="70%"/><br>
+<em>Hier moet de beschrijving van de foto, bijvoorbeeld gemaakt door .. in ...</em><br><br><br></p>
 
 en zo maak je een link 
 
