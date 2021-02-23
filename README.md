@@ -1,5 +1,3 @@
-## Wie we zijn
-
 Wij zijn ...... en we ...
 
 ## Hier vind je een overzicht van de inhoud:
