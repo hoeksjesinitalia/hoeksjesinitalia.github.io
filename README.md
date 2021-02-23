@@ -1,6 +1,6 @@
 Wij zijn ...... en we ...
 
-## Hier vind je een overzicht van de inhoud:
+## Blogs
 
-* Blogs 2021
+* 2021
   * [Blog 1](./BlogTemplate.md)
