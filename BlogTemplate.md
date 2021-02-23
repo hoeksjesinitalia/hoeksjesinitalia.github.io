@@ -1,4 +1,4 @@
-# BlogTemplate, dit is de titel 
+## BlogTemplate, dit is de titel 
 #### Datum: 10-04-2021
 
 Dit is een template bestand hier kan je verhaaltje typen over wat er gebeurd is of wat julle gedaan hebben, zo plaats je een foto:
