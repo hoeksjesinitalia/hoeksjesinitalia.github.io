@@ -1,5 +1,5 @@
 # BlogTemplate, dit is de titel 
-### 10-04-21
+#### Datum: 10-04-2021
 
 Dit is een template bestand hier kan je verhaaltje typen over wat er gebeurd is of wat julle gedaan hebben, zo plaats je een foto:
 
