@@ -3,7 +3,7 @@ Naar Agrano, een dorpje (680 inwoners) bij Omegna aan het Ortameer in Piemonte. 
 
 ## Blogs
 * 2020 
-  * [Augustus, voorbereidingen](/Augustus, voorbereidingen.md)
+  * [Augustus, voorbereidingen](./Augustus, voorbereidingen.md)
   * Kamer voor kamer kijken we wat we wel en niet mee willen nemen. Elke week rijden we een paar keer naar de kringloop met een volle auto. We proberen ons aantal kuubs te halveren...Voor sommige dingen vinden we een nieuw baasje en daar zijn we blij mee. Langzaam gaan we steeds meer mensen vertellen dat we weggaan. Sommigen zijn blij voor ons, sommigen vinden het maar niks. 
 
 * 2021
