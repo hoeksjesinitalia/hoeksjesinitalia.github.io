@@ -1,15 +1,9 @@
 # BlogTemplate
 
 Dit is een template bestand, zo plaats je een foto:
-
-<p align="center">
-<img src="Figures/fig1.png" alt="Fig1" width="70%"/>
-<br>
-<em>Overview of the MadingleyR workflow.</em>
-<br>
-<br>
-<br>
-</p>
+/* Dit zien mensen niet */
+<p align="center"><img src="Figures/fig1.png" alt="Fig1" width="70%"/><br>
+<em>Hier moet de beschrijving van de foto</em><br><br><br></p>
 
 en zo maak je een link 
 
