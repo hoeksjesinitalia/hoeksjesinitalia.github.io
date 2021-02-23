@@ -1,5 +1,5 @@
 # BlogTemplate, dit is de titel 
-## Zo maak je een subtitel bijvoorbeeld met de datum van het blog
+### 10-04-21
 
 Dit is een template bestand hier kan je verhaaltje typen over wat er gebeurd is of wat julle gedaan hebben, zo plaats je een foto:
 
