@@ -4,3 +4,4 @@ Wij zijn Marion en Kees Hoeks en wat we doen etc ...
 
 * 2021
   * [Wandeling Februari](./WandelingFeb.md)
+  * [oefening](./oefenblog.md)
