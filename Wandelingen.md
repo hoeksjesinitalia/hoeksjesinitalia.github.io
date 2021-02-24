@@ -10,3 +10,6 @@ We nemen het pad "sentiero azurro" dat ons langsonder de granietberg Montorfano 
 <em> de goede route gevonden </em><br><br><br></p> 
 <p align="center"><img src="Wandelingen/foto3.jpg" alt="Fig3" width="70%"/><br>
 <em> het stenen pad </em><br><br><br></p>
+Onderweg lezen we dat dit pad werd grbruikt om de grote blokken graniet van de Mont Orfano te vervoeren naar het water. 
+De granietblokken werden op stevige karren gezet. Het graniet werd tot in Rome toe gebruikt, vervoerd over het water, 
+vandaar het kanaal tussen het Mergozzomeer en het Lago Maggiore. 
