@@ -1,3 +1,14 @@
+---
+title: "Title"
+author: "Author"
+date: "DATE"
+output: 
+  html_document:
+     css: 
+     self_contained: no
+
+---
+
 * ## Februari 2021
   * ## Mergozzo
     #### 19 februari
@@ -23,6 +34,3 @@ vandaar het kanaal tussen het Mergozzomeer en het Lago Maggiore.
 <p align="center"><img src="Wandelingen/foto4.jpg" alt="Fig4" width="70%"/><br>
 <em> uitzicht op Mergozzo </em><br><br><br></p>
 
-<style>
-@media only screen and (max-width: 640px) {#foto{width: 50%;}}
-</style>
