@@ -27,3 +27,16 @@ van te maken, Fido komt elke keer met zijn neus tegen de camera en vertrapt bijn
 Op dit punt van het pad zien we in de verte het Lago Maggiore liggen. 
 <p align="center"><img id="fotobreed" src="Wandelingen/foto6.jpg" /><br>
 <em> in de verte Lago Maggiore </em></p>
+we naderen nu het einde van het sentiero azurro pad
+<p align="center"><img id="fotohoog" src="Wandelingen/foto7.jpg" /><br>
+<em> de dappere stappers </em></p>
+we komen nu aan de zuidkant van het meer, vlakbij het treinstation Verbania-Pallanza. 
+We verlaten het pad, lopen door een spoortunnel en komen op het strand uit. 
+<p align="center"><img id="fotohoog" src="Wandelingen/foto8.jpg" /><br>
+<em> zuidkant van het meer </em></p>
+via het strand komen we op het terrein van een camping, via paadjes en hekken weer op een andere camping
+<p align="center"><img id="fotobreed" src="Wandelingen/foto9.jpg" /><br>
+<em> verste punt van de route </em></p>
+Fido gaat nog even gauw in bad voor we weer omhoog gaan en het meer verlaten.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto10.jpg" /><br>
+<em> de schone bader </em></p>
