@@ -9,10 +9,10 @@ We nemen het pad "sentiero azurro" dat ons langsonder de granietberg Montorfano 
  
  
  
-<p align="center"><img id="foto" src="Wandelingen/foto2.jpg" alt="Fig4" width="30%"/><br>
+<p align="center"><img id="foto" src="Wandelingen/foto2.jpg" alt="Fig4" width="40%"/><br>
 <em> de goede route gevonden </em><br><br><br></p>
 
-<p align="center"><img src="Wandelingen/foto3.jpg" alt="Fig4" width="30%"/><br>
+<p align="center"><img src="Wandelingen/foto3.jpg" alt="Fig4" width="40%"/><br>
 <em> het stenen pad </em><br><br><br></p>
 
 
