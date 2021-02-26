@@ -3,12 +3,10 @@
     #### 19 februari
  <p align="center"><img src="Wandelingen/foto1.jpg" alt="Fig1" width="70%"/><br>
 <em> de route </em><br><br><br></p> 
-Rond 12 uur parkeren we Klaartje in Mergozzo, dichtbij Via Montorfano. 
-<p align="right"><img src="Wandelingen/foto2.jpg" alt="Fig2" width="30%"/></p> 
-Omdat Fido na een kwartier rijden op de achterbank gaat kotsen hebben wij hem nu op een deken in de achterbak en dat gaat goed!
+Rond 12 uur parkeren we Klaartje in Mergozzo, dichtbij Via Montorfano.<img align="right" src="Wandelingen/foto2.jpg" width="30%"/>Omdat Fido na een kwartier rijden op de achterbank gaat kotsen hebben wij hem nu op een deken in de achterbak en dat gaat goed!
 We nemen het pad "sentiero azurro" dat ons langsonder de granietberg Montorfano leidt en langs het meer van Mergozzo.
 
-<p align="right"><img src="Wandelingen/foto2.jpg" alt="Fig2" width="70%"/>
+<p align="center"><img src="Wandelingen/foto2.jpg" alt="Fig2" width="70%"/>
 <em> de goede route gevonden </em><br><br><br></p> 
 
 <p align="center"><img src="Wandelingen/foto3.jpg" alt="Fig3" width="70%"/><br>
