@@ -20,3 +20,7 @@ Het graniet werd tot in Rome toe gebruikt, vervoerd over het water,vandaar het k
 
 <p align="center"><img id="fotobreed" src="Wandelingen/foto4.jpg" /><br>
 <em> uitzicht op Mergozzo </em></p>
+<p align="center"><img id="fotobreed" src="Wandelingen/foto5.jpg" /><br>
+<em> het eerste sneeuwklokje voor ons </em></p>
+<p align="center"><img id="fotobreed" src="Wandelingen/foto6.jpg" /><br>
+<em> in de verte Lago Maggiore </em></p>
