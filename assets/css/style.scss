@@ -42,11 +42,20 @@
 }
 
 img#fotobreed {
-    width: 70%;
+    width: 60%;
 }
 
 img#fotohoog {
+    width: 40%;
+}
+
+@media only screen and (max-width: 600px) {
+img#fotobreed {
+    width: 70%;
+}
+img#fotohoog {
     width: 50%;
+}
 }
 
 
