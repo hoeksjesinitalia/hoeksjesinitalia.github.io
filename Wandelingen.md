@@ -20,7 +20,10 @@ Het graniet werd tot in Rome toe gebruikt, vervoerd over het water,vandaar het k
 
 <p align="center"><img id="fotobreed" src="Wandelingen/foto4.jpg" /><br>
 <em> uitzicht op Mergozzo </em></p>
+Bij een watervalletje  (waar Fido eerst vrolijk in baddert) zien we de eerste sneeuwklokjes van dit jaar. Het valt even niet mee om er een foto
+van te maken, Fido komt elke keer met zijn neus tegen de camera en vertrapt bijna, lichtvoetig als ie is, de sneeuwklokjes.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto5.jpg" /><br>
 <em> het eerste sneeuwklokje voor ons </em></p>
+Op dit punt van het pad zien we in de verte het Lago Maggiore liggen. 
 <p align="center"><img id="fotobreed" src="Wandelingen/foto6.jpg" /><br>
 <em> in de verte Lago Maggiore </em></p>
