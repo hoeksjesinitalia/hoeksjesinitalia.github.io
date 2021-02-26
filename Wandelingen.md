@@ -8,9 +8,13 @@ Rond 12 uur parkeren we Klaartje in Mergozzo, dichtbij Via Montorfano. Omdat Fid
 We nemen het pad "sentiero azurro" dat ons langsonder de granietberg Montorfano leidt en langs het meer van Mergozzo.
 
 <div align="center">
+ <div>
  <img src="Wandelingen/foto2.jpg" alt="Fig4" width="30%"/>
  <img src="Wandelingen/foto3.jpg" alt="Fig4" width="30%"/>
-<div>
+  </div>
+</div>
+ 
+ 
 <p align="center"><img src="Wandelingen/foto2.jpg" alt="Fig4" width="30%"/><br>
 <em> de goede route gevonden </em><br><br><br></p>
 
