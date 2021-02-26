@@ -7,7 +7,7 @@
 Rond 12 uur parkeren we Klaartje in Mergozzo, dichtbij Via Montorfano. Omdat Fido na een kwartier rijden op de achterbank gaat kotsen hebben wij hem nu op een deken in de achterbak en dat gaat goed!
 We nemen het pad "sentiero azurro" dat ons langsonder de granietberg Montorfano leidt en langs het meer van Mergozzo.
  
-<p align="center"><img src="Wandelingen/foto2.jpg" alt="Fig4" width="30%"/><br>
+<p align="center" width="10%"><img src="Wandelingen/foto2.jpg" alt="Fig4" width="30%"/><br>
 <em> de goede route gevonden </em><br><br><br></p>
 
 <p align="center"><img src="Wandelingen/foto3.jpg" alt="Fig4" width="30%"/><br>
