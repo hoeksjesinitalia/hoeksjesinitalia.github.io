@@ -33,7 +33,7 @@ we naderen nu het einde van het sentiero azurro pad
 we komen nu aan de zuidkant van het meer, vlakbij het treinstation Verbania-Pallanza. 
 We verlaten het pad, lopen door een spoortunnel en komen op het strand uit. 
 <p align="center"><img id="fotohoog" src="Wandelingen/foto8.jpg" /><br>
- 
+In vroegere tijden was het Mergozzomeer een onderdeel van het Lago Maggiore maar door de slibafzetting van de rivier de Toce is het honderden jaren geleden een zelfstandig meer geworden. Marian (dank!) liet nog weten dat het water in het Lago di Mergozzo zonder twijfel het schoonste en zuiverste water is in Italië. 
 <em> zuidkant van het meer </em></p>
 via het strand komen we op het terrein van een camping, via paadjes en hekken weer op een andere camping
 <p align="center"><img id="fotobreed" src="Wandelingen/foto9.jpg" /><br>
