@@ -50,4 +50,7 @@ we moeten nu een weg op en ergens langs de rechterkant het pad zien te vinden da
 Kees zit duidelijk elfjes zegt hij, ik zie ze niet...
 <p align="center"><img id="fotohoog" src="Wandelingen/foto13.jpg" /><br>
 <em> Fotograaf met assistent </em></p>
-Het lijkt mij meer iemand die een foto neemt met de regisseur op de achtergrond
+Het lijkt mij meer iemand die een foto neemt met de regisseur op de achtergrond...
+<p align="center"><img id="fotohoog" src="Wandelingen/foto14.jpg" /><br>
+<em> watervalletje </em></p>
+om de 50 meter is wel een waterval, dus we wandelen met een continu geluid van het geklater van water, heel mooi, het is net de Efteling!
