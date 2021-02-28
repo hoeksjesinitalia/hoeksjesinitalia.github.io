@@ -10,9 +10,9 @@ We nemen het pad "sentiero azurro" dat ons langsonder de granietberg Montorfano 
 
 <p align="center"><img id="fotohoog" src="Wandelingen/foto2.jpg" /><br>
 <em> de goede route gevonden </em></p>
-
-<p align="center"><img id="fotohoog" src="Wandelingen/foto3.jpg" /><br>
+<p align="center"><img id="fotobreed" src="Wandelingen/foto3.jpg" /><br>
 <em> het stenen pad </em></p>
+
 
 Onderweg lezen we dat dit pad werd gebruikt om de grote blokken graniet van de Mont Orfano te vervoeren naar het water. 
 De granietblokken werden op stevige houten karren gezet (De Fiatjes waren er toen nog niet). 
