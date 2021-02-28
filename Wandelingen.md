@@ -72,7 +72,7 @@ Van het glibberpad af komen we in Mergozzo uit en lopen over de boulevard langs 
 In Mergozzo zoeken we nog naar een gelegnheid om iet te eten of te drinken. Er is alleen een Michelinrestaurant open en daar mogen geen honden naar binnen, dus besluiten we maar Klaartje te gaan zoeken. 
 <p align="center"><img id="fotohoog" src="Wandelingen/foto20.jpg" /><br>
 <em> de straatjes van historisch Mergozzo </em></p>
-we lopen door de smalle straatjes op zoek naar het kerkje als oriëntatiepunt om de parkeerplaats te vinden.De huizen zijn geboouwd met de ferme ossola steen en elk huis leunt op zijn buurhuis om zo elkaar te versterken. Tussen de huizen lopen smalle staatjes en trappetjes.
+we lopen door de smalle straatjes op zoek naar het kerkje als oriëntatiepunt om de parkeerplaats te vinden.De huizen zijn gebouwd met de ferme ossola steen en elk huis leunt op zijn buurhuis om zo elkaar te versterken. Tussen de huizen lopen smalle staatjes en trappetjes.
 we komen nog een mooi binnenplaatsje tegen
 <p align="center"><img id="fotohoog" src="Wandelingen/foto21.jpg" /><br>
 <em> mooi binnenplaatsje in Mergozzo </em></p>
