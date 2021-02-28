@@ -76,5 +76,5 @@ we komen nog een mooi binnenplaatsje tegen
 <p align="center"><img id="fotohoog" src="Wandelingen/foto21.jpg" /><br>
 <em> mooi binnenplaatsje in Mergozzo </em></p>
 Eindelijk zien we het kerkje en daarna het straatje omhoog naar de parkeerplaats
-<p align="center"><img id="fotohoog" src="Wandelingen/foto21.jpg" /><br>
+<p align="center"><img id="fotohoog" src="Wandelingen/foto22.jpg" /><br>
 <em> treden omhoog naar de parkeerplaats </em></p>
