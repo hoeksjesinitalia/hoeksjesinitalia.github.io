@@ -33,10 +33,15 @@ we naderen nu het einde van het sentiero azurro pad
 we komen nu aan de zuidkant van het meer, vlakbij het treinstation Verbania-Pallanza. 
 We verlaten het pad, lopen door een spoortunnel en komen op het strand uit. 
 <p align="center"><img id="fotohoog" src="Wandelingen/foto8.jpg" /><br>
+ 
 <em> zuidkant van het meer </em></p>
 via het strand komen we op het terrein van een camping, via paadjes en hekken weer op een andere camping
 <p align="center"><img id="fotobreed" src="Wandelingen/foto9.jpg" /><br>
 <em> verste punt van de route </em></p>
+<p align="center"><img id="fotobreed" src="Wandelingen/foto11.jpg" /><br>
+<em> een legpuzzelwaardig plaatje </em></p>
 Fido gaat nog even gauw in bad voor we weer omhoog gaan en het meer verlaten.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto10.jpg" /><br>
 <em> de schone bader </em></p>
+we moeten nu een weg op en ergens langs de rechterkant het pad zien te vinden dat ons weer naar Mergozzo leidt. 
+ We lopen langs de linkerkant van de weg, omdat daar een afgeschermd fiets/voetgangerspad is. Wanneer we het pad zien aan de rechterkant van de weg (denken we) moeten we nog een steekje doorlopen tot de afscherming weg is en dan teruglopen over de weg. We nemen het pad omhoog.
