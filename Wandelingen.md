@@ -53,4 +53,28 @@ Kees zit duidelijk elfjes zegt hij, ik zie ze niet...
 Het lijkt mij meer iemand die een foto neemt met de regisseur op de achtergrond...
 <p align="center"><img id="fotohoog" src="Wandelingen/foto14.jpg" /><br>
 <em> watervalletje </em></p>
-om de 50 meter is wel een waterval, dus we wandelen met een continu geluid van het geklater van water, heel mooi, het is net de Efteling!
+om de 50 meter is wel een waterval, dus we wandelen met het continue geluid van het geklater van water, heel mooi, het is net de Efteling!
+We stoppen ergens bij een watervalletje en eten en drinken wat.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto15.jpg" /><br>
+<em> bij onze picknickplaats </em></p>
+<p align="center"><img id="fotohoog" src="Wandelingen/foto16.jpg" /><br>
+<em> nog een watervalletje </em></p>
+Het pad wordt naar het einde toe steiler (naar beneden) en gladder, een beetje glibberen..
+<p align="center"><img id="fotobreed" src="Wandelingen/foto17.jpg" /><br>
+<em> een mooi plaatje </em></p>
+aan de overkant zien we de Monte Orfano, waar we op de heenweg langsgelopen zijn
+<p align="center"><img id="fotobreed" src="Wandelingen/foto18.jpg" /><br>
+<em> Monte Orfano </em></p>
+Van het glibberpad af komen we in Mergozzo uit en lopen over de boulevard langs het meer weer het stadje in
+<p align="center"><img id="fotobreed" src="Wandelingen/foto19.jpg" /><br>
+<em> Mergozzo </em></p>
+In Mergozzo zoeken we nog naar een gelegnheid om iet te eten of te drinken. Er is alleen een Michelinrestaurant open en daar mogen geen honden naar binnen, dus besluiten we maar Klaartje te gaan zoeken. 
+<p align="center"><img id="fotohoog" src="Wandelingen/foto20.jpg" /><br>
+<em> de straatjes van historisch Mergozzo </em></p>
+we lopen door de smalle straatjes op zoek naar het kerkje als oriëntatiepunt om de parkeerplaats te vinden.
+we komen nog een mooi binnenplaatsje tegen
+<p align="center"><img id="fotohoog" src="Wandelingen/foto21.jpg" /><br>
+<em> mooi binnenplaatsje in Mergozzo </em></p>
+Eindelijk zien we het kerkje en daarna het straatje omhoog naar de parkeerplaats
+<p align="center"><img id="fotohoog" src="Wandelingen/foto21.jpg" /><br>
+<em> treden omhoog naar de parkeerplaats </em></p>
