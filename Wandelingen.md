@@ -45,3 +45,9 @@ Fido gaat nog even gauw in bad voor we weer omhoog gaan en het meer verlaten.
 <em> de schone bader </em></p>
 we moeten nu een weg op en ergens langs de rechterkant het pad zien te vinden dat ons weer naar Mergozzo leidt. 
  We lopen langs de linkerkant van de weg, omdat daar een afgeschermd fiets/voetgangerspad is. Wanneer we het pad zien aan de rechterkant van de weg (denken we) moeten we nog een stukje doorlopen tot de afscherming afgelopen is en dan teruglopen over de weg. We nemen het pad omhoog. Dit is niet zo'n recht pad zoals aan de overkant, het is smal en kronkelig en gaat van waterval naar waterval. Fido kan zijn geluk niet op!
+<p align="center"><img id="fotohoog" src="Wandelingen/foto12.jpg" /><br>
+<em> Boselfje met haar hond? </em></p>
+Kees zit duidelijk elfjes zegt hij, ik zie ze niet...
+<p align="center"><img id="fotohoog" src="Wandelingen/foto13.jpg" /><br>
+<em> Fotograaf met assistent </em></p>
+Het lijkt mij meer iemand die een foto neemt met de regisseur op de achtergrond
