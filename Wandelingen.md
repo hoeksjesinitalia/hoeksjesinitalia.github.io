@@ -81,5 +81,6 @@ Eindelijk zien we het kerkje en daarna het straatje omhoog naar de parkeerplaats
 <em> treden omhoog naar de parkeerplaats </em></p>
 moe maar tevreden rijden we weer naar Agrano. Dit was zeker één van de mooiste wandelingen die we ooit gedaan hebben!
 
-*## Cannobio
- *#### 21 februari 
+  * ## Cannobio
+    #### 21 februari
+  
