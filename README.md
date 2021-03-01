@@ -9,4 +9,5 @@ Naar Agrano, een dorpje (680 inwoners) bij Omegna aan het Ortameer in Piemonte. 
 * 2021
   * [Wandelingen Februari](./Wandelingen.md)
       * [Mergozzo](./Mergozzo.md)
+      * [Cannobio](./Cannobio.md)
  
