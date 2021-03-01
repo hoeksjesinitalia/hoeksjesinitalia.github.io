@@ -8,6 +8,6 @@ We parkeren Klaartje aan het begin van het dorp en lopen het dorpje door richtin
 <p align="center"><img id="fotobreed" src="Wandelingen/foto24.jpg" /><br>
 <em> ohoh </em></p>
 we denken al van :heel dat stuk gereden en nu mag de hond er niet in. We vragen het aan de bezoekers , de eerste praat Frans en weet van niets, de tweede is een Italiaan die zegt dat het volgens hem wel mag... Even verder staat nog zo'n bord, nu met de woorden: cane al guinzaglio, met de nummers van de wetsartikelen.
-Hoewel we het niet uit kunnen spreken begrijpen we dat dit hond aan de lijn betekent en opgelucht lopen we door, in de veronderstelling dat de route het park zal verlaten.
+Hoewel we het niet uit kunnen spreken begrijpen we dat dit hond aan de lijn betekent en opgelucht lopen we door, in de veronderstelling dat de route het park spoedig zal verlaten en dat we dan Fido los kunnen laten.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto25.jpg" /><br>
 <em> langs het riviertje </em></p>
