@@ -1,5 +1,4 @@
-
-* ## Mergozzo
+## Mergozzo
 #### 19 februari
     
 <p align="center"><img id="fotobreed" src="Wandelingen/foto1.jpg" /><br>
