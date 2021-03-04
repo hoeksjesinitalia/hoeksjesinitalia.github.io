@@ -22,3 +22,9 @@ Gelukkig vinden we daarna een klein paadje langs het water (het brede pad gaat n
 we volgen het riviertje Cannobino via het smalle paadje, waarschijnlijk het oorspronkelijke paadje, en zien in de verte het brede pad nog liggen. 
 <p align="center"><img id="fotohoog" src="Wandelingen/foto28.jpg" /><br>
 <em> langs het riviertje </em></p>
+We moeten bij de brug omhoog, naar het brede pad, maar kunnen na de brug weer afslaan naar het smalle paadje.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto29.jpg" /><br>
+<em> oud bruggetje </em></p>
+Uiteindelijk bereiken we het eindpunt van de wandeling: het kerkje van Santa Anna bij de kloof.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto30.jpg" /><br>
+<em> kerkje van Santa Anna </em></p>
