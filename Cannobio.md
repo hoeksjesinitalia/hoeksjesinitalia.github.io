@@ -30,4 +30,11 @@ Uiteindelijk bereiken we het eindpunt van de wandeling: het kerkje van Santa Ann
 <em> kerkje van Santa Anna </em></p>
 Helaas is het kerkje gesloten evenals het grotrestaurant. Er staan wel bankjes,lekker in de zon en daar picknicken we onder toeziend oog van Fido.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto31.jpg" /><br>
-<em> ik wacht op blikje tonijn... </em></p>
+<em> wachtend op het blikje tonijn... </em></p>  
+onder en naast het kerkje is een ravijn waar het water hard doorheen stroomt
+<p align="center"><img id="fotohoog" src="Wandelingen/foto32.jpg" /><br>
+<em> kloof </em></p>  
+De route gaat nu heel saai dezelfde weg terug maar we zien op de wandelkaart (met dank aan Selwyn en Coline) dat er bij de stenen brug een pad omhoog gaat,
+langs allerlei bronnen, richting Cannobio en we besluiten die te nemen. Fido neemt nog een bad.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto33.jpg" /><br>
+<em> hij moet toch wel schoon zijn! </em></p>
