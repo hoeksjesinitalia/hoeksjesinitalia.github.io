@@ -18,4 +18,4 @@ We komen bij een hangbrug en daar wordt Fido's angst voor bruggen echt duidelijk
 
 Gelukkig vinden we daarna een klein paadje langs het water (het brede pad gaat niet eens langs het water en Fido is de brug alweer vergeten!
 <p align="center"><img id="fotobreed" src="Wandelingen/foto27.jpg" /><br>
-<em> och gaarrum </em></p>
+<em> da's beter! </em></p>
