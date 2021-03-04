@@ -38,3 +38,26 @@ De route gaat nu heel saai dezelfde weg terug maar we zien op de wandelkaart (me
 langs allerlei bronnen, richting Cannobio en we besluiten die te nemen. Fido neemt nog een bad.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto33.jpg" /><br>
 <em> hij moet toch wel schoon zijn! </em></p>
+We lopen dus het pad terug tot aan de stenen brug
+<p align="center"><img id="fotohoog" src="Wandelingen/foto34.jpg" /><br>
+<em> net ijs,toch? </em></p>
+We moeten bij de stenen brug een ijzeren, open trap op om het pad te bereiken en Fido heeft daar psychische problemen mee...onder permanente coaching komt hij toch boven, trede voor trede. Het pad gaat nu best steil omhoog, we komen een bord tegen van hoe het er hier vroeger uitzag.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto35.jpg" /><br>
+<em> de vele bronnen en thermen van Cannobio (toen) </em></p>
+We hebben nu van de andere kant en veel hoger uitzicht op het riviertje de Cannobino
+<p align="center"><img id="fotohoog" src="Wandelingen/foto36.jpg" /><br>
+<em> in de verte Cannobio </em></p>
+Eenmaal boven is er een mooi bospad met verschillende watervallen.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto37.jpg" /><br>
+<em> een van de vele watervallen </em></p>
+Eigenlijk vinden we dit pad veel mooier dan het zo aangeprezen pad dat we op de heenweg hebben gehad!
+<p align="center"><img id="fotohoog" src="Wandelingen/foto38.jpg" /><br>
+<em> een van de vele watervallen </em></p>
+We naderen Cannobio weer
+<p align="center"><img id="fotobreed" src="Wandelingen/foto38a.jpg" /><br>
+<em> uitzicht op Cannobio </em></p>
+Terug in Cannobio lopen we via de smalle straatjes naar de haven en boulevard van Cannobio
+<p align="center"><img id="fotobreed" src="Wandelingen/foto39.jpg" /><br>
+<em>haventje van Cannobio </em></p
+We kijken of er op de boulevard iets open is, maar nee. Wanneer we teruglopen naar de auto komen we langs een bakker annex koffietentje. We nemen een koffie en een cola en een heerlijke koek. Wanneer we daarna bijna weer terug zijn bij de auto ontdekt Kees dat ie zijn rugzak heeft laten staan in het koffietentje. We lopen vlug terug en gelukkig staat ie er nog! 
+We rijden weer langs het Lago Maggiore terug naar huis, een mooie dag!
