@@ -19,3 +19,6 @@ We komen bij een hangbrug en daar wordt Fido's angst voor bruggen echt duidelijk
 Gelukkig vinden we daarna een klein paadje langs het water (het brede pad gaat niet eens langs het water en Fido is de brug alweer vergeten!
 <p align="center"><img id="fotobreed" src="Wandelingen/foto27.jpg" /><br>
 <em> da's beter! </em></p>
+we volgen het riviertje Cannobino via het smalle paadje, waarschijnlijk het oorspronkelijke paadje, en zien in de verte het brede pad nog liggen. 
+<p align="center"><img id="fotohoog" src="Wandelingen/foto28.jpg" /><br>
+<em> langs het riviertje </em></p>
