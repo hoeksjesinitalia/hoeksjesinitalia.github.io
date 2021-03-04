@@ -11,4 +11,7 @@ we denken al van :heel dat stuk gereden en nu mag de hond er niet in. We vragen 
 Even verder staat nog zo'n bord, nu met de woorden: cane al guinzaglio, met de nummers van de wetsartikelen.Hoewel we het niet uit kunnen spreken begrijpen we dat dit hond aan de lijn betekent en opgelucht lopen we door, in de veronderstelling dat de route het park spoedig zal verlaten en dat we dan Fido los kunnen laten.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto25.jpg" /><br>
 <em> langs het riviertje </em></p>
-Het pad blijft echter breed en geasfalteerd en langzaam beginnen we te begrijpen dat dit voor grote drommen toeristen bedoeld is. Niet echt mooi vinden we.  
+Het pad blijft echter breed en geasfalteerd en langzaam beginnen we te begrijpen dat dit voor grote drommen toeristen bedoeld is. Niet echt mooi vinden we.
+We komen bij een hangbrug en daar wordt Fido's angst voor bruggen echt duidelijk: wanneer er van de andere kant ook iemand komt gaat de brug wiebelen en Fido gaat op zijn kniëen verder. Belachelijk beestje!
+<p align="center"><img id="fotobreed" src="Wandelingen/foto26.jpg" /><br>
+<em> och gaarrum </em></p>
