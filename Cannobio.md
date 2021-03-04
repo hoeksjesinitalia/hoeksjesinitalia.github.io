@@ -58,6 +58,6 @@ We naderen Cannobio weer
 <em> uitzicht op Cannobio </em></p>
 Terug in Cannobio lopen we via de smalle straatjes naar de haven en boulevard van Cannobio
 <p align="center"><img id="fotobreed" src="Wandelingen/foto39.jpg" /><br>
-<em>haventje van Cannobio </em></p
+<em>haventje van Cannobio </em></p>
 We kijken of er op de boulevard iets open is, maar nee (het is zondag). Wanneer we teruglopen naar de auto komen we langs een bakker annex koffietentje. We nemen een koffie en een cola en een heerlijke koek. Wanneer we daarna bijna weer terug zijn bij de auto ontdekt Kees dat ie zijn rugzak heeft laten staan in het koffietentje. We lopen vlug terug en gelukkig staat ie er nog! 
 We rijden weer langs het Lago Maggiore terug naar huis, een mooie dag!
