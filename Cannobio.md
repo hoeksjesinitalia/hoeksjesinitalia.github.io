@@ -28,3 +28,6 @@ We moeten bij de brug omhoog, naar het brede pad, maar kunnen na de brug weer af
 Uiteindelijk bereiken we het eindpunt van de wandeling: het kerkje van Santa Anna bij de kloof.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto30.jpg" /><br>
 <em> kerkje van Santa Anna </em></p>
+Helaas is het kerkje gesloten evenals het grotrestaurant. Er staan wel bankjes,lekker in de zon en daar picknicken we onder toeziend oog van Fido.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto31.jpg" /><br>
+<em> ik wacht op blikje tonijn... </em></p>
