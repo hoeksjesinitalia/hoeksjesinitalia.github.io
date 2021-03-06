@@ -4,6 +4,8 @@
 We rijden richting Cossogno, hemelsbreed niet ver van Mergozzo waar we vorige week zijn geweest, maar tot onze verbazing leidt de navigatie ons helemaal naar 
 Verbania om daar een afslag te nemen naar Cossogno en niet ergens een afslag bij Mergozzo. Cossogno ligt dicht tegen het natuurreservaat de Val Grande. 
 Het is eigenlijk de laatste plaats waar nog fatsoenlijk naar toe gereden kan worden, daar boven wordt het wild en onbegaanbaar (zeker voor ons Klaartje). 
+<p align="center"><img id="fotobreed" src="Wandelingen/foto39a.jpg" /><br>
+<em> de route zoals ie zou moeten </em></p>
 <p align="center"><img id="fotohoog" src="Wandelingen/foto40.jpg" /><br>
 <em> de goede route gevonden </em></p>
 In Cossogno vinden we al snel de goede route, richting de Ponte Roma. Eenmaal in het bos gaat hat pad snel omlaag en horen we het geklater van water
