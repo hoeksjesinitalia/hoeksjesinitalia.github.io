@@ -37,7 +37,7 @@ In Rovegro dwalen we door de smalle straatjes maar vinden onze route niet. Wanne
 Het pad stijgt en stijgt, we zien verlaten huizen en veel later vinden we grafschriften van mensen die overleden zijn (op deze route?)
 <p align="center"><img id="fotobreed" src="Wandelingen/foto50.jpg" /><br>
 <em> uitzicht op Rovegro </em></p>
-Wanneer we uiteindelijk zoveel gestegen zijn dat we weten dat we niet goed zitten, het gebied wordt steeds woester en onherbergzamer, zien we op de routekaart dat we maar tot maximaal 400 meter hoogte hoefden (daarom had ik deze wandeling ook uitgekozen) maar we zitten veeel hoger. We besluiten terug te gaan, deze route gaat alleen nog maar naar een berghut.Terug in Rovegro zijn er twee mogelijkheden: terug over hetzelfde pad naar Cossogno of alsnog de route proberen te vinden. Uiteindelijk zien we bordjes richting Het Oratoria van Santoni, dat staat ook bij ons op de route, dus we nemen dat pad. 
+Wanneer we uiteindelijk zoveel gestegen zijn dat we weten dat we niet goed zitten, het gebied wordt steeds woester en onherbergzamer, zien we op de routekaart dat we maar tot maximaal 400 meter hoogte hoefden (daarom had ik deze wandeling ook uitgekozen) maar we zitten veeel hoger. We besluiten terug te gaan, deze route gaat alleen nog maar naar een berghut.Terug in Rovegro zijn er twee mogelijkheden: terug over hetzelfde pad naar Cossogno of alsnog de route proberen te vinden. Uiteindelijk zien we bordjes richting Het Oratorio van Santoni, dat staat ook bij ons op de route, dus we nemen dat pad. 
 <p align="center"><img id="fotohoog" src="Wandelingen/foto51.jpg" /><br>
 <em> het goede pad? </em></p>
 Wanneer we weer aan de zonkant van de berg komen stoppen we even voor een kleine picknick
