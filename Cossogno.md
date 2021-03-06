@@ -43,7 +43,7 @@ Wanneer we uiteindelijk zoveel gestegen zijn dat we weten dat we niet goed zitte
 Wanneer we weer aan de zonkant van de berg komen stoppen we even voor een kleine picknick
 <p align="center"><img id="fotohoog" src="Wandelingen/foto52a.jpg" /><br>
 <em> efkes zitten </em></p>
-Uiteindelijk komen we bij het Oratorio di Santoni, helaas zijn we vergeten daar een foto van te maken, dus dez is van internet
+Uiteindelijk komen we bij het Oratorio di Santoni, helaas zijn we vergeten daar een foto van te maken, dus deze is van internet
 <p align="center"><img id="fotohoog" src="Wandelingen/foto52b.jpg" /><br>
 <em> Oratorio di Santoni </em></p>
 We hebben meer oog voor het uizicht
