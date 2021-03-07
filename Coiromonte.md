@@ -7,7 +7,7 @@ Na enige moeite parkeren we de auto's aan de voorkant van het dorp en lopen het 
 Na de flessen gevuld te hebben lopen we door en komen bij het kleine winkeltje, gerund door een Duitse vrouw, waar we wat stukjes pizza kopen.Even verderop lopen we langs het plaatselijke café dat open is en we nemen ons voor daar straks iets te drinken, op de terugweg.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto57.jpg" /><br>
 <em> straks koffie/cola! </em></p>
-We lopen een best wel steil pad op en al spoedig wordt het uitzicht mooi. Het doel van de wandeling wordt de 3 Montagnette genoemd, s heuveltoppen naast elkaar met uitzicht op het Lago Maggiore
+We lopen een best wel steil pad op en al spoedig wordt het uitzicht mooi. Het doel van de wandeling wordt de 3 Montagnette genoemd, 3 heuveltoppen naast elkaar met uitzicht op het Lago Maggiore
 <p align="center"><img id="fotobreed" src="Wandelingen/foto58.jpg" /><br>
 <em> mooi he? </em></p>
 Ook komen we de eerste stukken sneeuw tegen, waar Fido lekker in gaat rollen.
