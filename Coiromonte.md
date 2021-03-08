@@ -7,13 +7,13 @@ Na enige moeite parkeren we de auto's aan de voorkant van het dorp en lopen het 
 Na de flessen gevuld te hebben lopen we door en komen bij het kleine winkeltje, gerund door een Duitse vrouw, waar we wat stukjes pizza kopen.Even verderop lopen we langs het plaatselijke café dat open is en we nemen ons voor daar straks iets te drinken, op de terugweg.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto57.jpg" /><br>
 <em> straks koffie/cola! </em></p>
-We lopen een best wel steil pad op en al spoedig wordt het uitzicht mooi. Het doel van de wandeling wordt de 3 Montagnette genoemd, 3 heuveltoppen naast elkaar met uitzicht op het Lago Maggiore
+We lopen een best wel steil pad op en al spoedig wordt het uitzicht mooi. Het doel van de wandeling wordt de 3 Montagnette genoemd, 3 heuveltoppen naast elkaar met uitzicht op het Lago Maggiore.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto58.jpg" /><br>
 <em> mooi he? </em></p>
 Ook komen we de eerste stukken sneeuw tegen, waar Fido lekker in gaat rollen.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto59.jpg" /><br>
 <em> de eerste sneeuw </em></p>
-Verder omhoog komen we langs de witte berken
+Verder omhoog komen we langs de witte berken.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto60.jpg" /><br>
 <em> Fido sluit de rij </em></p>
 Voorbij de berken komen we in een open gebied 
@@ -50,10 +50,10 @@ Tot mijn verbazing Komt Kyra naar mij en Fido toelopen en ik kan haar halsband p
 We picknicken op de top, het is lekker in het zonnetje!
 <p align="center"><img id="fotohoog" src="Wandelingen/foto71.jpg" /><br>
 <em> deze twee wilden samen op de foto </em></p>
-Terwijl we zitten te eten cirkelt er een zweefvliegtuigje boven ons
+Terwijl we zitten te eten cirkelt er een zweefvliegtuigje boven ons.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto72.jpg" /><br>
 <em> lijkt me heerlijk, zo vrij in de lucht </em></p>
-we stappen weer op en lopen naar de tweede heuvel
+we stappen weer op en lopen naar de tweede heuvel.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto73.jpg" /><br>
 <em> Erika wijst Kees waar alles ligt in de verte </em></p>
 En inderdaad een schitterend uitzicht!
