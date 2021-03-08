@@ -55,4 +55,25 @@ Terwijl we zitten te eten cirkelt er een zweefvliegtuigje boven ons
 we stappen weer op en lopen naar de tweede heuvel
 <p align="center"><img id="fotohoog" src="Wandelingen/foto73.jpg" /><br>
 <em> Erika wijst Kees waar alles ligt in de verte </em></p>
+En inderdaad een schitterend uitzicht
+<p align="center"><img id="fotobreed" src="Wandelingen/foto74.jpg" /><br>
+<em> Het Lago Maggiore </em></p>
+Op naar de derde heuvel
+<p align="center"><img id="fotohoog" src="Wandelingen/foto75.jpg" /><br>
+<em> knapperd, he?  </em></p>
+
+Thomas vertelt wat over de omgeving
+<p align="center"><img id="fotobreed" src="Wandelingen/foto76.jpg" /><br>
+<em> onze privegids </em></p>
+Fido komt heel vaak even onder mijn handje staan om aan zijn oren gekriebeld te worden...
+<p align="center"><img id="fotobreed" src="Wandelingen/foto77.jpg" /><br>
+<em> groepsfoto, gemaakt door Erika </em></p>
+Kees maakt foto's met zijn telefoon , waarvan dan weer een foto gemaakt wordt!
+<p align="center"><img id="fotohoog" src="Wandelingen/foto78.jpg" /><br>
+<em> de fotograaf  </em></p>
+weer op de terugweg schieten we ook nog een paar mooie plaatjes!
+<p align="center"><img id="fotobreed" src="Wandelingen/foto79.jpg" /><br>
+<em>  </em></p>
+
+
 
