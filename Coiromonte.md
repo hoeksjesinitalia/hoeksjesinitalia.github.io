@@ -48,6 +48,18 @@ Ik besluit op deze top te wachten
 <em> sneeuw </em></p>
 
 
+Tot mijn verbazing Komt Kyra naar mij en Fido toelopen en ik kan haar halsband pakken. We zijn weer met zijn allen bij elkaar!
+We picknicken op de top, het is lekker in het zonnetje!
+<p align="center"><img id="fotohoog" src="Wandelingen/foto71.jpg" /><br>
+<em> deze twee wilden samen op de foto </em></p>
+Terwijl we zitten te eten cirkelt er een zweefvliegtuigje boven ons.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto72.jpg" /><br>
+<em> lijkt me heerlijk, zo vrij in de lucht </em></p>
+we stappen weer op en lopen naar de tweede heuvel.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto73.jpg" /><br>
+<em> Erika wijst Kees waar alles ligt in de verte </em></p>
+
+
 
 En inderdaad een schitterend uitzicht!
 <p align="center"><img id="fotobreed" src="Wandelingen/foto74.jpg" /><br>
