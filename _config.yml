@@ -2,4 +2,5 @@ theme: jekyll-theme-cayman
 title: Hoeksjes in Italia!
 description: Welkom op onze pagina
 author: Marion & Kees Hoeks
+future: true
 google_analytics:
