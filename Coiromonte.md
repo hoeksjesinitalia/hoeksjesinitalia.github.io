@@ -28,6 +28,7 @@ Frisgewassen loopt Fido met ons verder omhoog, naar de top
 Nog net niet boven zien we het Lago Maggiore al liggen
 <p align="center"><img id="fotobreed" src="Wandelingen/foto64.jpg" /><br>
 <em> Trixie in actie </em></p>
+
 Terwijl we verder omhoog lopen blijkt Kyra (te ver) weggelopen te zijn, er wordt naar haar gezocht en geroepen.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto65.jpg" /><br>
 <em> nog een ferme stapper </em></p>
@@ -74,6 +75,13 @@ Kees maakt foto's met zijn telefoon , waarvan dan weer een foto gemaakt wordt!
 weer op de terugweg schieten we ook nog een paar mooie plaatjes!
 <p align="center"><img id="fotobreed" src="Wandelingen/foto79.jpg" /><br>
 <em>  </em></p>
-
-
+we hebben ook wel geluk met het mooie weer!
+<p align="center"><img id="fotohoog" src="Wandelingen/foto80.jpg" /><br>
+<em> Fido </em></p>
+<p align="center"><img id="fotohoog" src="Wandelingen/foto81.jpg" /><br>
+<em>  </em></p>
+Eenmaal weer afgedaald in Coiromonte komen we nog langs de kaasboer waar we een stukje kaas kopen en gaan daarna wat drinken met een koek erbij in het café, dat ik al eerder noemde. Komt daar net de plaatselijke geitenhoeder voorbij!
+<p align="center"><img id="fotobreed" src="Wandelingen/foto82.jpg" /><br>
+<em> de geitenhoeder van Coiromonte </em></p>
+Tevreden rijden we met Klaartje (bergaf is een stukje makkelijker) weer naar huis. 
 
