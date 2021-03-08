@@ -56,6 +56,9 @@ Terwijl we zitten te eten cirkelt er een zweefvliegtuigje boven ons.
 we stappen weer op en lopen naar de tweede heuvel.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto73.jpg" /><br>
 <em> Erika wijst Kees waar alles ligt in de verte </em></p>
+
+
+
 En inderdaad een schitterend uitzicht!
 <p align="center"><img id="fotobreed" src="Wandelingen/foto74.jpg" /><br>
 <em> Het Lago Maggiore </em></p>
