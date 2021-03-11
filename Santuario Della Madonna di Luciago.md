@@ -1,4 +1,4 @@
-## Santuario Della Modonna Di Luciago
+## Santuario Della Madonna Di Luciago
 #### 7 maart
 We rijden weer met twee auto's via Armeno naar het Santuario della Madonna di Luciago (net voorbij Cheggino)
 <p align="center"><img id="fotobreed" src="Wandelingen/foto82a.jpg" /><br>
