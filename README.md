@@ -13,5 +13,5 @@ Naar Agrano, een dorpje (680 inwoners) bij Omegna aan het Ortameer in Piemonte. 
       * [Cossogno](./Cossogno.md)
       * [Coiromonte](./Coiromonte.md)
       
-  * [Wandelingen Maart](./WandelingenMaart.md)
+  * [Wandelingen Maart](./Wandelingen.md)
       * [Santuario Della Madonna di Luciago](./Santuario Della Madonna di Luciago.md)    
