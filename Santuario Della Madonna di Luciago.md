@@ -3,7 +3,7 @@
 We rijden weer met twee auto's via Armeno naar het Santuario della Madonna di Luciago (net voorbij Cheggino)
 <p align="center"><img id="fotobreed" src="Wandelingen/foto82a.jpg" /><br>
 <em> het Santuario </em></p>
-en parkeren de auto bij het Santuario. Dit is op weg naar de Mottarone, het adres is dan ook via Mottarone. 
+en parkeren de auto's bij het Santuario. Dit is op weg naar de Mottarone, het adres is dan ook via Mottarone. 
 Er is een restaurant, helaas gesloten.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto82b.jpg" /><br>
 <em> hotel/restaurant </em></p>
