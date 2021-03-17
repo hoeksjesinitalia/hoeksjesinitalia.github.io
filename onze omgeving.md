@@ -23,7 +23,7 @@ Normaal nemen we het water bij de bron in het dorp, is ook goed, maar dit water 
 ## Eerste ontmoeting met Fido, 13 december
 Erika heeft ons warm gemaakt om te gaan kijken voor een hond in "haar" Canile (hondenopvang), waar ze vrijwilligerswerk verricht.
 Aan de hand van de foto's op internet maken we een keuze: Fido of Rex. Fido is een kruising waar een Australische herder in zit, 7 jaar oud, en Rex is een 3 jaar oude Duitse herder. Fido heeft een "duister" verleden, hij zou een vrouw hard in haar kuiten gebeten hebben, waarom hij gebeten heeft weten ze niet. Hij zit al 3 jaar in de opvang en er is nog nooit iemand naar hem komen kijken. Meteen vallen zijn lieve ogen op, in één van zijn ogen loopt een litteken. Hij heeft een mooi kopje dat niet bij het massieve, brede lijf lijkt te passen. Hij legt meteen zijn brede poot op Marion, en er is een klik! We mogen met hem gaan wandelen.
-<p align="center"><img id="fotobreed" src="Wandelingen/foto98jpg" /><br>
+<p align="center"><img id="fotobreed" src="Wandelingen/foto98.jpg" /><br>
 <em> hier zie je goed zijn litteken </em></p>
 Van achter gezien moet Marion er erg om lachen en ze vergelijkt Fido met een mammoet...
 <p align="center"><img id="fotohoog" src="Wandelingen/foto99.jpg" /><br>
