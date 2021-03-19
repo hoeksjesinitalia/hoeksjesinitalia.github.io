@@ -31,3 +31,20 @@ Van achter gezien moet Marion er erg om lachen en ze vergelijkt Fido met een mam
 We besluiten deze hond te willen, maar de adoptie-procedures moeten gevolgd worden...Eerst nog een paar keer met hem wandelen (en kijken hoe het met de drie honden van Erika samen gaat), dan nog een bezoek thuis van iemand van de hondenopvang of de woonomgeving wel geschikt is...uiteindelijk komt Fido "op proef" op 17 december. 
 <p align="center"><img id="fotobreed" src="Wandelingen/foto100.jpg" /><br>
 <em> daar ligt ie dan </em></p>
+
+## "Test"Wandeling met Fido en de rest, 18 december
+We gaan met zijn allen wandelen: Romina, Thomas en Erika en hun drie honden, wij met Fido.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto101.jpg" /><br>
+<em> voordat we allemaal onze jas/riem aan hebben.. </em></p>
+We lopen de berg op, naar Alpe Selviana en genieten van het uitzicht.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto102.jpg" /><br>
+<em> Terwijl er van het uitzicht genoten wordt, doet Fido zijn ding... </em></p>
+Er wordt een groepsfoto gemaakt van de bewoners van Casa Rosa
+<p align="center"><img id="fotobreed" src="Wandelingen/foto103.jpg" /><br>
+<em> allemaal op de foto </em></p>
+We lopen nog tot de waterval, maar omdat we die al zo vaak op de foto hebben maakt Marion een andere foto
+<p align="center"><img id="fotohoog" src="Wandelingen/foto104.jpg" /><br>
+<em> wat een knapperd!(die hond) </em></p>
+En op de terugweg nog even een foto van de besneeuwde top
+<p align="center"><img id="fotobreed" src="Wandelingen/foto105.jpg" /><br>
+<em> mooie kleuren </em></p>
