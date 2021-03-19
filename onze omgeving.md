@@ -35,10 +35,10 @@ We besluiten deze hond te willen, maar de adoptie-procedures moeten gevolgd word
 ## "Test"Wandeling met Fido en de rest, 18 december
 We gaan met zijn allen wandelen: Romina, Thomas en Erika en hun drie honden, wij met Fido.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto101.jpg" /><br>
-<em> voordat we allemaal onze jas/riem aan hebben.. </em></p>
+<em> voordat we allemaal onze jas/riem aan hebben </em></p>
 We lopen de berg op, naar Alpe Selviana en genieten van het uitzicht.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto102.jpg" /><br>
-<em> Terwijl er van het uitzicht genoten wordt, doet Fido zijn ding... </em></p>
+<em> Terwijl er van het uitzicht genoten wordt, doet Fido zijn ding </em></p>
 Er wordt een groepsfoto gemaakt van de bewoners van Casa Rosa
 <p align="center"><img id="fotobreed" src="Wandelingen/foto103.jpg" /><br>
 <em> allemaal op de foto </em></p>
