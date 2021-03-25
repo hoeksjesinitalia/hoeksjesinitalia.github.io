@@ -1,12 +1,12 @@
 ## 22 november Tre Alberi
 Na drie weken hard werken aan het huis trekken we er op zondag 22 november erop uit: naar Tre Alberi, een punt waar vroeger drie grote beuken gestaan zouden hebben, nu blijkt er nog maar één te staan..
-We lopen de steile helling op naar Alpe Selviana, waar onze hout"boer" woont, Diego. 
+We lopen de steile helling op naar Alpe Selviana, waar onze hout"boer" woont, Diego. We passeren daarbij de natuurlijke bron van Agrano. 
 <p align="center"><img id="fotobreed" src="Wandelingen/foto92.jpg" /><br>
 <em> uitzicht vanuit Alpe Selviana </em></p>
 Ondanks dat het koud is is het op de zonnekant van de heuvel wel lekker.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto93.jpg" /><br>
 <em> Tussen de berken </em></p>
-na een klim van ongeveer een drie kwartier komen we bij het bord
+na een klim daarna van ongeveer drie kwartier komen we bij het bord
 
 
 we zouden kunnen doorlopen, maar het is koud en we gaan terug, eerst maken we nog een foto van het uitzicht op Omegna, door de bomen heen.
@@ -28,11 +28,11 @@ Aan de hand van de foto's op internet maken we een keuze: Fido of Rex. Fido is e
 Van achter gezien moet Marion er erg om lachen en ze vergelijkt Fido met een mammoet...
 <p align="center"><img id="fotohoog" src="Wandelingen/foto99.jpg" /><br>
 <em> Fido's achterste </em></p>
-We besluiten deze hond te willen, maar de adoptie-procedures moeten gevolgd worden...Eerst nog een paar keer met hem wandelen (en kijken hoe het met de drie honden van Erika samen gaat), dan nog een bezoek thuis van iemand van de hondenopvang of de woonomgeving wel geschikt is...uiteindelijk komt Fido "op proef" op 17 december. 
+We besluiten deze hond te nemen, maar de adoptie-procedures moeten gevolgd worden...Eerst nog een paar keer met hem wandelen (en kijken hoe het met de drie honden van Erika samen gaat), dan nog een bezoek bij ons thuis van iemand van de hondenopvang of de woonomgeving wel geschikt is...uiteindelijk komt Fido "op proef" op 17 december. 
 <p align="center"><img id="fotobreed" src="Wandelingen/foto100.jpg" /><br>
 <em> daar ligt ie dan </em></p>
 
-## "Test"Wandeling met Fido en de rest, 18 december
+## "Test"wandeling met Fido en de rest, 18 december
 We gaan met zijn allen wandelen: Romina, Thomas en Erika en hun drie honden, wij met Fido.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto101.jpg" /><br>
 <em> voordat we allemaal onze jas/riem aan hebben </em></p>
