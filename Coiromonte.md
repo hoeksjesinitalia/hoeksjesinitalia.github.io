@@ -32,10 +32,10 @@ Nog net niet boven zien we het Lago Maggiore al liggen
 Terwijl we verder omhoog lopen blijkt Kyra (te ver) weggelopen te zijn, er wordt naar haar gezocht en geroepen.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto65.jpg" /><br>
 <em> nog een ferme stapper </em></p>
-Terwijl er naar Kyra gezocht loop besluit ik met Fido een vaste plaats in te nemen op de top en loop verder omhoog
+Terwijl er naar Kyra gezocht wordt (alle kanten uit) besluit ik met Fido een vaste plaats in te nemen op de top en loop verder omhoog
 <p align="center"><img id="fotobreed" src="Wandelingen/foto66.jpg" /><br>
 <em> uitzicht aan de "verkeerde kant" </em></p>
-Ik loop over het pad naar boven met Fido (eigenlijk weer om de heuvel heen naar beneden blijkt later) terwijl de rest binnendoor gaat en daar naar Kyra zoekt, ik loop me vast in de sneeuw...en ben de rest kwijt. Omdat ik een beetje verloren kijk, spreken twee mensen me aan en vertellen dat recht omhoog mensen roepen om een Kyra (in het Engels). Ik weet dus dat ik recht omhoog moet om de rest weer te vinden.
+Ik loop over het pad naar boven met Fido (eigenlijk weer om de heuvel heen naar beneden blijkt later) terwijl de rest binnendoor gaat en daar naar Kyra zoekt, ik loop me vast in de sneeuw...en ben de rest kwijt. Omdat ik een beetje verloren kijk, spreken twee mensen me in het Engels aan en vertellen dat recht omhoog mensen roepen om een Kyra. Ik weet dus dat ik recht omhoog moet om de rest weer te vinden.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto67.jpg" /><br>
 <em> samen met Fido op stap </em></p>
 <p align="center"><img id="fotobreed" src="Wandelingen/foto68.jpg" /><br>
@@ -48,7 +48,7 @@ Ik besluit op deze top te wachten
 <em> sneeuw </em></p>
 
 
-Tot mijn verbazing Komt Kyra naar mij en Fido toelopen en ik kan haar halsband pakken. We zijn weer met zijn allen bij elkaar!
+Tot mijn verbazing komt Kyra eigenlijk vrij snel naar mij en Fido toelopen en ik kan haar halsband pakken. We zijn weer met zijn allen bij elkaar!
 We picknicken op de top, het is lekker in het zonnetje!
 <p align="center"><img id="fotohoog" src="Wandelingen/foto71.jpg" /><br>
 <em> deze twee wilden samen op de foto </em></p>
