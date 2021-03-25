@@ -68,7 +68,7 @@ aan de overkant zien we de Monte Orfano, waar we op de heenweg langsgelopen zijn
 Van het glibberpad af komen we in Mergozzo uit en lopen over de boulevard langs het meer weer het stadje in
 <p align="center"><img id="fotobreed" src="Wandelingen/foto19.jpg" /><br>
 <em> Mergozzo </em></p>
-In Mergozzo zoeken we nog naar een gelegnheid om iet te eten of te drinken. Er is alleen een Michelinrestaurant open en daar mogen geen honden naar binnen, dus besluiten we maar Klaartje te gaan zoeken. 
+In Mergozzo zoeken we nog naar een gelegenheid om iet te eten of te drinken. Er is alleen een Michelinrestaurant open en daar mogen geen honden naar binnen, dus besluiten we maar Klaartje te gaan zoeken. 
 <p align="center"><img id="fotohoog" src="Wandelingen/foto20.jpg" /><br>
 <em> de straatjes van historisch Mergozzo </em></p>
 we lopen door de smalle straatjes op zoek naar het kerkje als oriëntatiepunt om de parkeerplaats te vinden.De huizen zijn gebouwd met de ferme ossola steen en elk huis leunt op zijn buurhuis om zo elkaar te versterken. Tussen de huizen lopen smalle staatjes en trappetjes.
