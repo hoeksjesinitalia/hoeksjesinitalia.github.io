@@ -28,7 +28,7 @@ Aan de hand van de foto's op internet maken we een keuze: Fido of Rex. Fido is e
 Van achter gezien moet Marion er erg om lachen en ze vergelijkt Fido met een mammoet...
 <p align="center"><img id="fotohoog" src="Wandelingen/foto99.jpg" /><br>
 <em> Fido's achterste </em></p>
-We besluiten deze hond te nemen, maar de adoptie-procedures moeten gevolgd worden...Eerst nog een paar keer met hem wandelen (en kijken hoe het met de drie honden van Erika samen gaat), dan nog een bezoek bij ons thuis van iemand van de hondenopvang of de woonomgeving wel geschikt is...uiteindelijk komt Fido "op proef" op 17 december. 
+We besluiten deze hond te nemen, maar de adoptie-procedures moeten gevolgd worden...Eerst nog een paar keer met hem wandelen (en kijken hoe het met de drie honden van Erika samen gaat), dan nog een bezoek bij ons thuis van iemand van de hondenopvang of de woonomgeving wel geschikt is...uiteindelijk komt Fido "op proef" op 17 december. Tot onze verbazing staat Fido ook op de kalender die uitgegeven wordt door de hondenopvang en trots kopen we deze. We hebben een "calendarboy" 
 <p align="center"><img id="fotobreed" src="Wandelingen/foto100.jpg" /><br>
 <em> daar ligt ie dan </em></p>
 
@@ -48,3 +48,37 @@ We lopen nog tot de waterval, maar omdat we die al zo vaak op de foto hebben maa
 En op de terugweg nog even een foto van de besneeuwde top
 <p align="center"><img id="fotobreed" src="Wandelingen/foto105.jpg" /><br>
 <em> mooie kleuren </em></p>
+
+## wat steden in de buurt
+# Omegna
+Uiteraard komt dan eerst Omegna, zo'n 5 km van ons vandaan, waar we de meeste boodschappen doen en op donderdag naar de markt gaan
+<p align="center"><img id="fotobreed" src="Wandelingen/foto106.jpg" /><br>
+<em> Erika met Kyra in Omegna </em></p>
+Op tweede kerstdag is er een demonstratie in Omegna, met sprekers en muziek.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto107.jpg" /><br>
+<em> Ook Thomas neemt het woord </em></p>
+
+## Sneeuw in Agrano
+Helaas net na de kerst, op 28 december, is Agrano bedekt met een flinke pak sneeuw. 
+<p align="center"><img id="fotohoog" src="Wandelingen/foto108.jpg" /><br>
+<em> Het straatje waar we met Fido lopen om bij het vrije pad te komen </em></p>
+<p align="center"><img id="fotobreed" src="Wandelingen/foto109.jpg" /><br>
+<em> Idyllisch plaatje van de rotonde van Agrano </em></p>
+We hebben ondertussen de papieren getekend voor de officiele adoptie van Fido, waarbij Fido zich achter mij verstopt als de man van de hondenpvang binnen komt. 
+Duidelijk is dat ie niet meer terug wil! De man vraagt of wij een foto willen maken van ons en Fido om deze met enige dankwoorden op Facebook te kunnen zetten.
+We besluiten naar de waterval te lopen om daar een mooie foto te maken.  
+Na vele pogingen (waarbij Fido ons bijna van de rots af duwt) wordt het deze foto:
+<p align="center"><img id="fotobreed" src="Wandelingen/foto110.jpg" /><br>
+<em> de foto voor de hondenopvang </em></p>
+Terwijl iedereen druk bezig is, blijft Fido in volle meditatie naar de waterval kijken, minutenlang!
+<p align="center"><img id="fotohoog" src="Wandelingen/foto111.jpg" /><br>
+<em> Fido in trance </em></p>
+Het is de eerste keer dat we Fido los laten, da's wel spannend. We moeten best wel klimmen en Fido staat boven op ons te wachten. We proberen of ie terugkomt,
+door te roepen maar je ziet hem denken: jullie moeten hier toch ook omhoog. Hij blijft geduldig wachten en uiteindelijk voegen ons bij de "leider".
+<p align="center"><img id="fotobreed" src="Wandelingen/foto112.jpg" /><br>
+<em> Je bent de baas of je bent het niet, komen jullie nog? </em></p>
+Uiteindelijk maken we nog een foto van ons met Fido om uit te kiezen voor de hondenopvang. Je ziet nu wel aan onze gezichten dat het koud is, deze foto wordt het niet!
+<p align="center"><img id="fotobreed" src="Wandelingen/foto113.jpg" /><br>
+<em> kouw kupkes </em></p>
+
+
