@@ -90,5 +90,14 @@ Dat het nog vriest is te zien onderweg naar Pratolungo
 en even nog een mooie pasfoto...  
 <p align="center"><img id="fotohoog" src="Wandelingen/foto116.jpg" /><br>
 <em> wijze blik... </em></p>  
- 
+
+De wandeling naar Pratolungo is de wandeling die we het vaakst lopen. We kunnen gewoon van huis uit weg lopen, lopen langs het voetbalveld en het veldje van Massino (onze koelkastleverancier en over-overbuurman) het bos in. We moeten een klein watervalletje oversteken, waar Fido altijd even een bad neemt. 
+ <p align="center"><img id="fotohoog" src="Wandelingen/foto122.jpg" /><br>
+<em> het zonlicht op het watervalletje </em></p>
+wanneer we na het kleine watervalletje linksaf gaan , het dal in, (dus niet naar Pratolungo) kunnen we nog naar de grote waterval.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto123.jpg" /><br>
+<em> het dal </em></p
+we lopen door het dal naar het bruggetje, waar ik een foto maak van het stroompje.
+ <p align="center"><img id="fotohoog" src="Wandelingen/foto124.jpg" /><br>
+<em> op het bruggetje </em></p>
 
