@@ -86,5 +86,9 @@ Wanneer de sneeuw weer weg is, blijft het toch koud (of komt dat gevoel het door
 <em> mooie besneeuwde toppen in de verte </em></p>
 Dat het nog vriest is te zien onderweg naar Pratolungo
 <p align="center"><img id="fotobreed" src="Wandelingen/foto115.jpg" /><br>
-<em> bevroren takjes bij een watervalletje </em></p>
+<em> bevroren takjes bij een watervalletje </em></p
+en even nog een mooie pasfoto...  
+<p align="center"><img id="fotohoog" src="Wandelingen/foto116.jpg" /><br>
+<em> wijze blik... </em></p>  
+ 
 
