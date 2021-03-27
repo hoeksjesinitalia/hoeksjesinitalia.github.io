@@ -81,4 +81,10 @@ Uiteindelijk maken we nog een foto van ons met Fido om uit te kiezen voor de hon
 <p align="center"><img id="fotobreed" src="Wandelingen/foto113.jpg" /><br>
 <em> kouw kupkes </em></p>
 
+Wanneer de sneeuw weer weg is, blijft het toch koud (of komt dat gevoel het door het feit dat we nog geen goede kachel hebben...). Fido is nu helemal gewend en we gaan veel met hem wandelen.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto114.jpg" /><br>
+<em> mooie besneeuwde toppen in de verte </em></p>
+Dat het nog vriest is te zien onderweg naar Pratolungo
+<p align="center"><img id="fotobreed" src="Wandelingen/foto115.jpg" /><br>
+<em> bevroren takjes bij een watervalletje </em></p>
 
