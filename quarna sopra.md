@@ -24,6 +24,7 @@ We komen langs gedenktekens over gebeurtenissen uit het leven van Maria. En we e
 <p align="center"><img id="fotohoog" src="Wandelingen/foto132.jpg" /><br>
 <em> een heel klein Mariaatje... </em></p>
 Helemaal boven lopen we naar het Belvedere, het uitzichtspunt.
+
 <p align="center"><img id="fotohoog" src="Wandelingen/foto133.jpg" /><br>
 <em> Kees en Fido lopen naar het uitzichtspunt </em></p>
 en het uitzicht is geweldig!
@@ -37,3 +38,15 @@ We volgen de route naar Quarna Sopra, over de vrij rustige weg, en komen langs s
 <p align="center"><img id="fotobreed" src="Wandelingen/foto136.jpg" /><br>
 <em> zomaar op een grauwe muur </em></p>
 In het dorp zelf zien we er nog meer op de huizen.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto137.jpg" /><br>
+<em> fantasieplaatje </em></p>
+<p align="center"><img id="fotobreed" src="Wandelingen/foto138.jpg" /><br>
+<em> een van de vele muurschilderingen </em></p>
+We lopen van Quarna Sopra naar Quarna Sotto (ligt zoals de naam al zegt, lager)Daar komen we langs het muziekinstrumenten museum, helaas gesloten.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto139.jpg" /><br>
+<em> het museum voor muziekinstrumenten </em></p>
+Wanneer we weer richting Cireggio lopen stuiten we op een kudde wilde geiten en komen we nog een mooie waterval tegen.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto140.jpg" /><br>
+<em> waterval </em></p>
+Weer terug bij Klaartje zien we dat de temperatuur in Klaartje is gestegen tot boven de dertig graden en met open ramen rijden we naar de Coop in Omegna om daar booschappen te doen (en heel dringend te plassen...) Een mooie dag!
+
