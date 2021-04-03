@@ -54,9 +54,13 @@ En op de terugweg nog even een foto van de besneeuwde top
 Uiteraard komt dan eerst Omegna, zo'n 5 km van ons vandaan, waar we de meeste boodschappen doen en op donderdag naar de markt gaan
 <p align="center"><img id="fotobreed" src="Wandelingen/foto106.jpg" /><br>
 <em> Erika met Kyra in Omegna </em></p>
+Omegna is een stad met meer dan 15 duizend inwoners aan het noordelijkste uiteinde van het Ortameer, een meer van glaciale oorsprong. Het Ortameer wordt beschouwd als het kleinste maar meest typische meer van Noord-Italië. Omgeven door bergen, weerspiegelt het water van het meer de grenzen van Omegna. Vervolgens stroomt het water in de rivier Nigoglia, die zich later weer bij de beek Strona voegt, en uiteindelijk het Lago Magiore bereikt.Omegna heeft een groot industrieel verleden: de achttiende-eeuwse industriële vestiging Ferriera (IJzerfabriek) en Fabbricone Angeli-Frua (Angeli-Frua Manufacturing), een textielbedrijf dat in 1896 werd opgericht, getuigen hiervan. Bekende merken uit het oude Omegna zijn Alessi, Calderoni, Girmi, Lagostina, La Nuova Faro, Irmel, Tracanzan en Piazza. Eigenlijk is Omegna een beetje als Oss: terwijl eerst iedereen zijn brood verdiende in de metaal- en textielindustrie is deze weggetrokken uit de stad en zie je overal de restanten van leegstaande fabrieken. 
 Op tweede kerstdag is er een demonstratie in Omegna, met sprekers en muziek.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto107.jpg" /><br>
 <em> Ook Thomas neemt het woord </em></p>
+Agrano is zoal Berghem bij Oss, het hoort tot de gemeente Agrano maar is eigenlijk een apart dorp. De hoofdattractie van het dorp is de "mummy", de dode van Agrano. In 1792 werd er tussen de beenderen van het kerkhof van Agrano een vrijwel intact lichaam gevonden van een vrouw. Na intense studie blijft het een mysterie, ze is ook niet geidentificeerd. Ze heeft lang in een glazen kist gelegen in de kapel, maar in de loop der jaren verviel het lichaam meer en meer en met hulp van giften uit Agrano is besloten tot een restauratie en ligt ze nu in een hermetisch afgesloten kist. 
+<p align="center"><img id="fotohoog" src="Wandelingen/foto141.jpg" /><br>
+<em> de dode van Agrano </em></p>
 
 ## Sneeuw in Agrano
 Helaas net na de kerst, op 28 december, is Agrano bedekt met een flinke pak sneeuw. 
