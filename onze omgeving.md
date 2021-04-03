@@ -95,13 +95,43 @@ en even nog een mooie pasfoto...
 <p align="center"><img id="fotohoog" src="Wandelingen/foto116.jpg" /><br>
 <em> wijze blik... </em></p>  
 
+## Richting Pratulango
 De wandeling naar Pratolungo is de wandeling die we het vaakst lopen. We kunnen gewoon van huis uit weg lopen, lopen langs het voetbalveld en het veldje van Massino (onze koelkastleverancier en over-overbuurman) het bos in. We moeten een klein watervalletje oversteken, waar Fido altijd even een bad neemt. 
+<p align="center"><img id="fotobreed" src="Wandelingen/foto145.jpg" /><br>
+<em> de schone bader </em></p
  <p align="center"><img id="fotohoog" src="Wandelingen/foto122.jpg" /><br>
 <em> het zonlicht op het watervalletje </em></p>
 wanneer we na het kleine watervalletje linksaf gaan , het dal in, (dus niet naar Pratolungo) kunnen we nog naar de grote waterval.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto123.jpg" /><br>
 <em> het dal </em></p
+ rechts is een (ddodlopende) afslag, waar we een ander beekje tegenkomen, heel schattig nu met die witte bloemetjes..
+ <p align="center"><img id="fotohoog" src="Wandelingen/foto148.jpg" /><br>
+ en ook deze bloemetjes vind ik mooi (begin maart)
+ <p align="center"><img id="fotobreed" src="Wandelingen/foto149.jpg" /><br>
+<em> paarse bloemetjes </em></p
+<em> op het bruggetje </em></p>
 we lopen door het dal naar het bruggetje, waar ik een foto maak van het stroompje.
  <p align="center"><img id="fotohoog" src="Wandelingen/foto124.jpg" /><br>
 <em> op het bruggetje </em></p>
+Na het bruggetje komen we een kudde geiten tegen die met veel gebel rondtrekken
+<p align="center"><img id="fotobreed" src="Wandelingen/foto142.jpg" /><br>
+<em> belgeiten </em></p
+na een steile beklimming komen we op de weg, die volgen we tot de afslag naar de waterval. Onderweg komen we de typische Italiaanse berghuizen tegen.
+ <p align="center"><img id="fotobreed" src="Wandelingen/foto143.jpg" /><br>
+<em> huizen hier in de omgeving </em></p
+ en daar zijn we weer bij de waterval van Pescone.
+ <p align="center"><img id="fotohoog" src="Wandelingen/foto144.jpg" /><br>
+<em> een favoriet plekje uit de buurt </em></p> 
+Ook Fido geniet nog even van de waterval.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto146.jpg" /><br>
+<em> een favoriet plekje uit de buurt </em></p>
+Fido gaat nog even hier in bad en dan zijn we in 10 minuten weer thuis!
+
+## richting Crabbia en Monte Barro
+Er loopt een mooi bospad van Agrano naar Crabbia, Kees gebruikt dit pad ook om hard te lopen.
+Behalve de kleine witte bloemetjes vinden we ook dit veel langs het pad:
+ <p align="center"><img id="fotobreed" src="Wandelingen/foto147.jpg" /><br>
+<em> ik weet even de naam niet </em></p
+
+ 
 
