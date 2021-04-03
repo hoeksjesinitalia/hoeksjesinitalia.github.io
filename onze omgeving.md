@@ -124,7 +124,7 @@ na een steile beklimming komen we op de weg, die volgen we tot de afslag naar de
 <em> een favoriet plekje uit de buurt </em></p> 
 Ook Fido geniet nog even van de waterval.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto146.jpg" /><br>
-<em> een favoriet plekje uit de buurt </em></p>
+<em> een echte toerist, die Fido </em></p>
 Fido gaat nog even hier in bad en dan zijn we in 10 minuten weer thuis!
 
 ## richting Crabbia en Monte Barro
