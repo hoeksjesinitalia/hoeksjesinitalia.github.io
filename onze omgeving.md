@@ -61,6 +61,12 @@ Op tweede kerstdag is er een demonstratie in Omegna, met sprekers en muziek.
 Agrano is zoal Berghem bij Oss, het hoort tot de gemeente Agrano maar is eigenlijk een apart dorp. De hoofdattractie van het dorp is de "mummy", de dode van Agrano. In 1792 werd er tussen de beenderen van het kerkhof van Agrano een vrijwel intact lichaam gevonden van een vrouw. Na intense studie blijft het een mysterie, ze is ook niet geidentificeerd. Ze heeft lang in een glazen kist gelegen in de kapel, maar in de loop der jaren verviel het lichaam meer en meer en met hulp van giften uit Agrano is besloten tot een restauratie en ligt ze nu in een hermetisch afgesloten kist. 
 <p align="center"><img id="fotohoog" src="Wandelingen/foto141.jpg" /><br>
 <em> de dode van Agrano </em></p>
+We hebben een wandeling gemaakt bij La Boschina in Omegna, een wandeling langs het strand van het Ortameer.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto150.jpg" /><br>
+<em> Het Ortameer vanuit het strandje </em></p>
+En ja hoor, meneer moet weer in bad
+<p align="center"><img id="fotobreed" src="Wandelingen/foto151.jpg" /><br>
+<em> weer fris </em></p>
 
 ## Sneeuw in Agrano
 Helaas net na de kerst, op 28 december, is Agrano bedekt met een flinke pak sneeuw. 
@@ -132,6 +138,17 @@ Er loopt een mooi bospad van Agrano naar Crabbia, Kees gebruikt dit pad ook om h
 Behalve de kleine witte bloemetjes vinden we ook dit veel langs het pad:
  <p align="center"><img id="fotobreed" src="Wandelingen/foto147.jpg" /><br>
 <em> ik weet even de naam niet </em></p
-
+De klim naar de Monte Barro is een steile, over een pad vol keien en stenen, geen leuk pad, maar het uitzicht loont zich (na ongeveer een uurtje).
+<p align="center"><img id="fotobreed" src="Wandelingen/foto152.jpg" /><br>
+<em> Uitzicht op Orta San Giulio en het eiland </em></p
+ San Giulio d'Orta (Sint Julius) en San Giuliano (Sint Julianus) waren twee broers van het kleine Grieks eiland Aegina (ongeveer 50 km van Athene). In de 4e eeuw arriveerden de twee broers aan de oevers van het Ortameer (na een tijdlang in Acqua Salvia bij Rome verbleven te hebben) met de  opdracht in naam van  keizer Theodosius de heidenen te evangeliseren en kerken te bouwen. 
+Het aantal kerken dat door de twee Griekse broeders tijdens hun reis door Italië werd opgericht steeg snel en bereikte een opmerkelijk totaal van 98.
+Julius zou zijn broer hebben belast met de bouw van de negenennegentigste kerk in Gozzano, terwijl hij alleen op zoek zou gaan naar de plaats waar de honderdste zou worden gebouwd. De heilige zou een prachtig eilandje hebben uitgekozen - alsof hij "de kwadratuur van de cirkel" kon doorbreken (hij verliet een eiland en keerde terug naar een eiland) - als de ideale plek om de honderdste kerk te bouwen. Toen hij echter op zoek ging naar een schipper om hem over te zetten, ontdekte hij dat alle inwoners te bang waren om dat te doen, vanwege de draken en slangen die toen op het eiland woonden. Gelukkig kon San Giulio op wonderbaarlijke wijze op zijn mantel naar het eiland varen, waarna hij alle heidense beesten versloeg en de grondvesten legde van de basiliek op dezelfde plaats waar zich nu de Basilica di San Giulio bevindt. Het eiland staat nu bekend als l'Isola di San Giulio.
+Het lijkt er echter op dat één van de oorspronkelijke bewoners van het eiland San Giulio's heilige slachtpartij heeft kunnen ontlopen. Dit was het schepsel dat bekend staat als l'Orchera, de Ogress, die naar verluidt het eiland ontvluchtte en zijn toevlucht zocht in een grot op het vasteland, bekend als "Il Bus de l'Orchera" (het hol van de Orchess). Ergens in de zeventiende eeuw werd in deze grot een gigantische wervel gevonden, en het lijkt waarschijnlijk dat dit bot toebehoorde aan de Orchera of aan een andere van de monsterlijke eerste bewoners van het eiland. Aan het eind van de negentiende eeuw werd op deze plaats een villa gebouwd, maar de grot werd bewaard en in het huis opgenomen.
+Wanneer men leest over draken en slangen, mantels die zweven en dragen, zou het gemakkelijk zijn om dit alles als een "legende" te bestempelen. Maar de zaken lijken iets ingewikkelder. In feite is van ten minste twee van de meer dan 100 kerken waarvan wordt aangenomen dat zij door Julius en Julianus van Aegina zijn gebouwd, bewezen dat zij van paleo-christelijke oorsprong zijn. Waar? In Gozzano en op het eiland San Giulio. Archeologische opgravingen in de Basilica di San Giulio en in de kerk van San Lorenzo in Gozzano kunnen de hypothese bevestigen dat de "legende" van de twee heiligen in werkelijkheid verschillende historische elementen bevat. In de San Giulio zijn bij onderzoek sporen gevonden van een primitieve basiliek (V-VI eeuw) in de vorm van een kleine kapel met een enkele apsis op het noorden.
+De relikwieën van de heilige Julius worden nog steeds bewaard in de Basilica di San Giulio, op het eiland San Giulio, midden in het Ortameer. De relikwieën van Julius daarentegen zijn in 1360 overgebracht naar de nieuwe kerk van Gozzano, die aan hem is gewijd, en onder het hoofdaltaar geplaatst, terwijl in de oude kerk van S. Lorenzo nog steeds de cenotaaf staat, of beter gezegd, een grafmonument zonder de menselijke resten van de persoon voor wie het was gebouwd.
+San Giulio (Sint Julius) is de patroonheilige van de metselaars, dankzij zijn activiteit als kerkbouwer en wordt vaak afgebeeld met gereedschap in de hand.
+  <p align="center"><img id="fotohoog" src="Wandelingen/foto153.jpg" /><br>
+<em> ook Fido geniet van het uitzicht </em></p>
  
 
