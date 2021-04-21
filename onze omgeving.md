@@ -156,10 +156,10 @@ San Giulio (Sint Julius) is de patroonheilige van de metselaars, dankzij zijn ac
 Wanneer we in Pratolungo van het ons bekende pad afkomen en naar de kerk van Pratolungo lopen begint daar een zeer steile weg naar beneden.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto154.jpg" /><br>
 <em> Even samen op de foto </em></p
- De weg gaat uiteindelijk over in een pad dat richting Pettenasco voert.
+De weg gaat uiteindelijk over in een pad dat richting Pettenasco voert.
  <p align="center"><img id="fotobreed" src="Wandelingen/foto155.jpg" /><br>
 <em> Daar mag Fido weer los! </em></p
- Volgens Thomas is dit een zeer oude stenen weg. 
+Volgens Thomas is dit een zeer oude stenen weg. 
  <p align="center"><img id="fotohoog" src="Wandelingen/foto156.jpg" /><br>
 <em> in de verte is het Ortameer al te zien </em></p>
 Aan het eind van dit pad zien we de spoorbrug. We zien toevallig weer een trein passeren met daarop complete vrachtwagens (dus niet alleen de containers), hebben ons daarover verbaasd, maar er is ons verteld dat de vrachtwagens op heel veel plekken niet kunnen komen over de weg. 
@@ -171,11 +171,11 @@ Eenmaal beneden nemen we even een afslagje naar de oude brug en bron
 Bij de bron is een fijn plekje om wat uit te rusten, wat te eten en wat te drinken, terwijl Fido een bad neemt(en zijn eigen badwater drinkt). 
 <p align="center"><img id="fotobreed" src="Wandelingen/foto159.jpg" /><br>
 <em> met op de achtergrond het geklater van het riviertje </em></p
- Terwijl we daar zitten komt iemand water halen, blijkbaar wordt de bron net zoals bij ons in Agrano door de dorpsmensen nog volop gebruikt. 
+Terwijl we daar zitten komt iemand water halen, blijkbaar wordt de bron net zoals bij ons in Agrano door de dorpsmensen nog volop gebruikt. 
  <p align="center"><img id="fotobreed" src="Wandelingen/foto160.jpg" /><br>
 <em> met een Mariaatje erboven </em></p
- na de korte pauze nemen we een andere route terug (zodat we niet die hele steile weg op moeten, alhoewel dit pad natuurlijk ook klimt). Het regent een beetje 
- maar het pad loopt door het bos en we voelen er weinig van. Er staan mooie bloempjes langs het pad. Het lijken kleine,wilde narcisjes.
+na de korte pauze nemen we een andere route terug (zodat we niet die hele steile weg op moeten, alhoewel dit pad natuurlijk ook klimt). Het regent een beetje 
+maar het pad loopt door het bos en we voelen er weinig van. Er staan mooie bloempjes langs het pad. Het lijken kleine,wilde narcisjes.
   <p align="center"><img id="fotohoog" src="Wandelingen/foto161.jpg" /><br>
 <em> Narcisjes? </em></p>
 uiteindelijk komen we weer bij kerk uit, lopen een stukje over de weg naar het pad dat naar Agrano leidt. 
