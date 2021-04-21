@@ -167,7 +167,7 @@ Aan het eind van dit pad zien we de spoorbrug. We zien toevallig weer een trein 
 <em> de spoorbrug </em></p 
 Eenmaal beneden nemen we even een afslagje naar de oude brug en bron
  <p align="center"><img id="fotohoog" src="Wandelingen/foto158.jpg" /><br>
-<em> de oude brug </em></p> 
+<em> de oude brug  </em></p> 
 Bij de bron is een fijn plekje om wat uit te rusten, wat te eten en wat te drinken, terwijl Fido een bad neemt(en zijn eigen badwater drinkt). 
 <p align="center"><img id="fotobreed" src="Wandelingen/foto159.jpg" /><br>
 <em> met op de achtergrond het geklater van het riviertje </em></p
