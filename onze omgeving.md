@@ -174,7 +174,7 @@ Bij de bron is een fijn plekje om wat uit te rusten, wat te eten en wat te drink
 Terwijl we daar zitten komt iemand water halen, blijkbaar wordt de bron net zoals bij ons in Agrano door de dorpsmensen nog volop gebruikt. 
  <p align="center"><img id="fotobreed" src="Wandelingen/foto160.jpg" /><br>
 <em> met een Mariaatje erboven </em></p
-na de korte pauze nemen we een andere route terug (zodat we niet die hele steile weg op moeten, alhoewel dit pad natuurlijk ook klimt). Het regent een beetje 
+Na de korte pauze nemen we een andere route terug (zodat we niet die hele steile weg op moeten, alhoewel dit pad natuurlijk ook klimt). Het regent een beetje 
 maar het pad loopt door het bos en we voelen er weinig van. Er staan mooie bloempjes langs het pad. Het lijken kleine,wilde narcisjes.
   <p align="center"><img id="fotohoog" src="Wandelingen/foto161.jpg" /><br>
 <em> Narcisjes? </em></p>
