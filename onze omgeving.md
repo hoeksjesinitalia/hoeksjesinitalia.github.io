@@ -55,6 +55,7 @@ Uiteraard komt dan eerst Omegna, zo'n 5 km van ons vandaan, waar we de meeste bo
 <p align="center"><img id="fotobreed" src="Wandelingen/foto106.jpg" /><br>
 <em> Erika met Kyra in Omegna </em></p>
 Omegna is een stad met meer dan 15 duizend inwoners aan het noordelijkste uiteinde van het Ortameer, een meer van glaciale oorsprong. Het Ortameer wordt beschouwd als het kleinste maar meest typische meer van Noord-Italië. Omgeven door bergen, weerspiegelt het water van het meer de grenzen van Omegna. Vervolgens stroomt het water in de rivier Nigoglia, die zich later weer bij de beek Strona voegt, en uiteindelijk het Lago Magiore bereikt.Omegna heeft een groot industrieel verleden: de achttiende-eeuwse industriële vestiging Ferriera (IJzerfabriek) en Fabbricone Angeli-Frua (Angeli-Frua Manufacturing), een textielbedrijf dat in 1896 werd opgericht, getuigen hiervan. Bekende merken uit het oude Omegna zijn Alessi, Calderoni, Girmi, Lagostina, La Nuova Faro, Irmel, Tracanzan en Piazza. Eigenlijk is Omegna een beetje als Oss: terwijl eerst iedereen zijn brood verdiende in de metaal- en textielindustrie is deze weggetrokken uit de stad en zie je overal de restanten van leegstaande fabrieken. 
+De kerk bij onze bank is gewijd aan de heilige 
 Op tweede kerstdag is er een demonstratie in Omegna, met sprekers en muziek.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto107.jpg" /><br>
 <em> Ook Thomas neemt het woord </em></p>
@@ -150,5 +151,32 @@ De relikwieën van de heilige Julius worden nog steeds bewaard in de Basilica di
 San Giulio (Sint Julius) is de patroonheilige van de metselaars, dankzij zijn activiteit als kerkbouwer en wordt vaak afgebeeld met gereedschap in de hand.
   <p align="center"><img id="fotohoog" src="Wandelingen/foto153.jpg" /><br>
 <em> ook Fido geniet van het uitzicht </em></p>
- 
+
+## Van Pratolungo naar Pettenasco en weer terug (ronde)
+Wanneer we in Pratolungo van het ons bekende pad afkomen en naar de kerk van Pratolungo lopen begint daar een zeer steile weg naar beneden.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto154.jpg" /><br>
+<em> Even samen op de foto </em></p
+ De weg gaat uiteindelijk over in een pad dat richting Pettenasco voert.
+ <p align="center"><img id="fotobreed" src="Wandelingen/foto155.jpg" /><br>
+<em> Daar mag Fido weer los! </em></p
+ Volgens Thomas is dit een zeer oude stenen weg. 
+ <p align="center"><img id="fotohoog" src="Wandelingen/foto156.jpg" /><br>
+<em> in de verte is het Ortameer al te zien </em></p>
+Aan het eind van dit pad zien we de spoorbrug. We zien toevallig weer een trein passeren met daarop complete vrachtwagens (dus niet alleen de containers), hebben ons daarover verbaasd, maar er is ons verteld dat de vrachtwagens op heel veel plekken niet kunnen komen over de weg. 
+<p align="center"><img id="fotobreed" src="Wandelingen/foto157.jpg" /><br>
+<em> de spoorbrug </em></p 
+Eenmaal beneden nemen we even een afslagje naar de oude brug en bron
+ <p align="center"><img id="fotohoog" src="Wandelingen/foto158.jpg" /><br>
+<em> de oude brug </em></p> 
+Bij de bron is een fijn plekje om wat uit te rusten, wat te eten en wat te drinken, terwijl Fido een bad neemt(en zijn eigen badwater drinkt). 
+<p align="center"><img id="fotobreed" src="Wandelingen/foto159.jpg" /><br>
+<em> met op de achtergrond het geklater van het riviertje </em></p
+ Terwijl we daar zitten komt iemand water halen, blijkbaar wordt de bron net zoals bij ons in Agrano door de dorpsmensen nog volop gebruikt. 
+ <p align="center"><img id="fotobreed" src="Wandelingen/foto160.jpg" /><br>
+<em> met een Mariaatje erboven </em></p
+ na de korte pauze nemen we een andere route terug (zodat we niet die hele steile weg op moeten, alhoewel dit pad natuurlijk ook klimt). Het regent een beetje 
+ maar het pad loopt door het bos en we voelen er weinig van. Er staan mooie bloempjes langs het pad. Het lijken kleine,wilde narcisjes.
+  <p align="center"><img id="fotohoog" src="Wandelingen/foto161.jpg" /><br>
+<em> Narcisjes? </em></p>
+uiteindelijk komen we weer bij kerk uit, lopen een stukje over de weg naar het pad dat naar Agrano leidt. 
 
