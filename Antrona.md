@@ -1,1 +1,3 @@
 ## 25 mei, Antrona Schieranco
+
+Na drie weken zonder auto gezeten te hebben en daarna een lange regenperiode kunnen we er eindelijk weer op uit! Selwyn noemde het Antronadal en dit wordt onze eerste bestemming weer. We rijden over een steeds smaller wordende weg naar Antrona Schieranco. We willen naar het meer van Antrona. We parkeren Klaartje aan de voorkant van het dorp en steken de weg over, het weggetje in naar de het meer, langs de camping (die ik gemaild had om een bungalowtje te huren, maar ze gaan pas 1 juni open). Er gaat een wandelpad naar het meer, dat telkens de haarspeldbochten van de weg afsnijdt.
