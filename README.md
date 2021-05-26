@@ -17,4 +17,4 @@ Naar Agrano, een dorpje (680 inwoners) bij Omegna aan het Ortameer in Piemonte. 
   * [Wandelingen Maart](./Wandelingen.md)
       * [Santuario Della Madonna di Luciago](./Santuario Della Madonna di Luciago.md)    
       * [Quarna Sopra](./Quarna Sopra.md)
-  * [Wandelingen mei](Wandelingen mei.md)
+  * [Wandelingen Mei](Wandelingen Mei.md)
