@@ -78,5 +78,9 @@ Dan wordt het moeilijk, van voren wordt Fido getrokken, van achteren geduwd en m
 <em> hier kan Fido niet meer langs het pad lopen </em></p>
 We zijn bijna weer bij ons begin van de rondwandeling.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto185.jpg" /><br>
-<em> De grote waterval rechts en andere links </em></p>
+<em> De grote waterval rechts  </em></p>
+We lopen hetzelfde pad terug naar Antrona Schieranco. Vlakbij de auto is een cooperative open, meestal kun je daar alleen terecht als je lid bent maar we hebben het al vaker geprobeerd en toen kregen we ook gewoon te drinken, dus we proberen het en krijgen inderdaad een colaatje.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto186.jpg" /><br>
+<em> op de achtergrond zie je nog een stukje van Klaartje! </em></p>
+Iets eten kan echter niet en op de terugweg rijden we langs de Tigros, doen nog wat boodschappen en rijden tevreden naar huis. 
 
