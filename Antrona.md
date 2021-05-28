@@ -9,6 +9,7 @@ Na drie weken zonder auto gezeten te hebben (er waren nogal wat tegenslagen en h
 Fido vindt het een leuk pad, er zijn genoeg mogelijkheden om zijn voetjes te laten afkoelen...
 <p align="center"><img id="fotobreed" src="Wandelingen/foto163.jpg" /><br>
 <em> Fido de walvis </em></p>
+We lopen op de telefoon, als oefening voor de navigatie die gaat komen. Op de routekaart zie je ook precies waar we verkeerd gelopen hebben.
 Het is bewolkt en soms zelfs een beetje koud, maar als je door loopt blijf je warm!
 <p align="center"><img id="fotohoog" src="Wandelingen/foto164.jpg" /><br>
 <em> als het maar niet gaat regenen, iemand heeft haar jas vergeten... </em></p>
