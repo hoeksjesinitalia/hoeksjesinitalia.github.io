@@ -47,8 +47,8 @@ we lopen een eindje door en horen een donderend geluid: we komen bij de Marmitte
 De kleuren zijn heel mooi. Op de brug kun je je niet verstaanbaar maken, zoveel geraas is er.  
 <p align="center"><img id="fotohoog" src="Wandelingen/foto202.jpg" /><br>
 <em> vanuit het bruggetje </em></p>
-ik kan niet genoeg krijgen van de kleur van het water. (Ik heb hier nog 10 foto's van)
-p align="center"><img id="fotohoog" src="Wandelingen/foto203.jpg" /><br>
+ik kan niet genoeg krijgen van de kleur van het water. (we hebben hier nog veel meer foto's van)
+<p align="center"><img id="fotohoog" src="Wandelingen/foto203.jpg" /><br>
 <em> groen-blauw </em></p>
 We drinken wat en laten het natuurgeweld achter ons. We raken het pad kwijt, het schijnt dood te lopen in een tuin van een huis. We gaan weer terug naar het grote pad (dat eigenlijk onze route niet is) en besluiten dat maar te volgen. We steken de Toce weer over. 
 <p align="center"><img id="fotobreed" src="Wandelingen/foto204.jpg" /><br>
