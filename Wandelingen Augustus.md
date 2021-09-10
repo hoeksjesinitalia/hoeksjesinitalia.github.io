@@ -107,5 +107,5 @@ We komen nog langs een grote waterval waar het krioelt van de vlinders, helaas n
 <em> De vlinderwaterval </em></p>
 al slingerend met haarspeldbochten komen we weer in het dal
 <p align="center"><img id="fotohoog" src="Wandelingen/foto244.jpg" /><br>
-<em> Fido wijstde weg </em></p>
+<em> Fido wijst de weg </em></p>
 Tegen half 5 zijn we weer in Riale. We nemen nog een biertje en een colaatje op het terras waar we langskomen en gaan dan terug naar het hotel, douchen en wachten...op het late eten!
