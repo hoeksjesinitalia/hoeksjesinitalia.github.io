@@ -1,6 +1,8 @@
 ## Riale
 #### 31 augustus-3september
-Op dinsdag 31 augustus rijden we richting Riale om daar 3 nachten te verblijven in een hotel, Aalt Dorf. Nog in Omegna worden we aangehouden door de cabanieri. Als blijkt dat we Nederlanders zijn hebben ze eigenlijk al spijt...en hoe komen we aan die Italiaanse auto? Gehuurd? De papieren worden gecheckt, ook Kees zijn gloednieuwe Italiaanse rijbewijs. Alles in orde! Eentje loopt nog om de auto en ziet dat Fido los op de achterbank zit. OhOh, dat mag niet. Voor deze keer geen boete (teveel complicaties denk ik), de volgende keer wel is de dreiging. We kopen iets verder op een riem die in de gordelbevestiging kan. We zijn rond 1 uur in de middag bij het hotel, checken in en nemen een lunch. 
+Op dinsdag 31 augustus rijden we richting Riale om daar 3 nachten te verblijven in een hotel, Aalts Dorf (op 1700m). Nog in Omegna worden we aangehouden door de cabanieri. Als blijkt dat we Nederlanders zijn hebben ze eigenlijk al spijt...en hoe komen we aan die Italiaanse auto? Gehuurd? De papieren worden gecheckt, ook Kees zijn gloednieuwe Italiaanse rijbewijs. Alles in orde! Eentje loopt nog om de auto en ziet dat Fido los op de achterbank zit. OhOh, dat mag niet. Voor deze keer geen boete (teveel complicaties denk ik), de volgende keer wel is de dreiging. We kopen iets verder op een riem die in de gordelbevestiging kan. We zijn rond 1 uur in de middag bij het hotel, checken in en nemen een lunch. 
+<p align="center"><img id="fotobreed" src="Wandelingen/foto245.jpg" /><br> 
+<em> Aalts Dorf, onze kamer is achterin, bij de rode stoelen. Klaartje rust uit van de grote klim </em></p>
 
 #### De eerste wandeling, dinsdag 31 augustus
 Daarna lopen we de route naar Lago Toggia, de route begint direct bij het hotel. 
@@ -108,4 +110,61 @@ We komen nog langs een grote waterval waar het krioelt van de vlinders, helaas n
 al slingerend met haarspeldbochten komen we weer in het dal
 <p align="center"><img id="fotohoog" src="Wandelingen/foto244.jpg" /><br>
 <em> Fido wijst de weg </em></p>
-Tegen half 5 zijn we weer in Riale. We nemen nog een biertje en een colaatje op het terras waar we langskomen en gaan dan terug naar het hotel, douchen en wachten...op het late eten!
+Tegen half 5 zijn we weer in Riale. We nemen nog een biertje en een colaatje op het terras waar we langskomen en gaan dan terug naar het hotel, douchen en wachten...op het late eten! De porties waren de vorige avond zo groot dat ik vanmorgen in het Italiaans op de keuzemenukaart geschreven heb dat halve porties genoeg zijn. Ze moesten erom lachen.Maar...we kregen halve porties en het was inderdaad genoeg!
+
+#### Derde dag, 2 september
+
+We willen vandaag naar Lago Castel. Dat kan via hetzelfde pad van de eerste dag, naar Lago Toggia, maar dat willen we niet. Op de kaart is een andere route te zien naar Lago Castel, eerst richting de Cascate del Toce. Dus lopen we vanuit het hotel over het pad naar Cascate del Toce.Het is rond 10 uur en de nevel hangt nog in het dal. 
+<p align="center"><img id="fotobreed" src="Wandelingen/foto246.jpg" /><br> 
+<em> nevelachtig </em></p>
+We zien in de nevel een waterval, waar we later heel dichtbij komen (blijkt achteraf)
+<p align="center"><img id="fotohoog" src="Wandelingen/foto247.jpg" /><br>
+<em> waterval </em></p>
+Het pad van het hotel naar de Cascate del Toce gaat over een heuvel heen, omhoog. 
+<p align="center"><img id="fotohoog" src="Wandelingen/foto248.jpg" /><br>
+<em> pad omhoog </em></p>
+Op de grote parkeerplaats aangekomen bij de Cascate del Toce kijken we even bij het souvenirwinkeltje en terwijl we staan te kijken naar de wandelstokken komt de eigenares naar buiten. Ze demonstreert de flexibele carbon telescoopstokken en we kopen deze, misschien met een vooruitziende blik...
+we lopen even het uitzichtsbruggetje op van de Cascate del Toce en maken daar een foto.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto249.jpg" /><br>
+<em> de Cascate del Toce van bovenaf </em></p>
+we kijken op de kaart en de navigatie. Volgens de kaart zouden we een stuk over de weg moeten, maar die gaat zo de tunnel in, dat zien we niet zitten. Bovendien zouden we dan 650 meter recht omhoog moeten. Volgens de navigatie moeten we een stuk terug en is daar een pad naar Lago Castel. Dit hebben we blijkbaar gemist. We lopen terug en ..inderdaad statt daar een bord richting Lago Castel. 
+We nemen dit pad en het blijkt algauw de hele steile klim te zijn! De stokken worden op mijn hoogte gezet en met de twee stokken kom ik langzaam omhoog. Ik durf nog niet echt met mijn volle gewicht op mijn rechterkant te steunen, het is maar twee maanden geleden dat mijn elleboog uit de kom en gebroken was, maar het helpt wel, de twee stokken. Toch vrij snel zitten we al weer hoog (na om de zoveel meter uitpuffen, uiteraard)
+<p align="center"><img id="fotohoog" src="Wandelingen/foto250.jpg" /><br>
+<em> het kerkje is nu wel piepklein! </em></p>
+Vanuit dit vergezicht zien we de weiden waar we met Selwyn en Coline geweest zijn, we zijn daar al ver boven!
+<p align="center"><img id="fotobreed" src="Wandelingen/foto251.jpg" /><br> 
+<em> met daarachter het meer Morasco </em></p>
+Het pad wordt maar steiler en steiler (dit pad gaan we echt niet terug), eindelijk boven komen we op een breed pad.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto252.jpg" /><br> 
+<em> Fidootje voorop </em></p>
+Dit vonden we een grappig bloemetje
+<p align="center"><img id="fotobreed" src="Wandelingen/foto253.jpg" /><br> 
+<em> warbolletje </em></p>
+En ze zijn met velen!
+<p align="center"><img id="fotobreed" src="Wandelingen/foto254.jpg" /><br> 
+<em> allemaal in de war </em></p>
+Het wordt mooi, zo met de wolken in de bergen
+<p align="center"><img id="fotobreed" src="Wandelingen/foto255.jpg" /><br> 
+<em> in de wolken </em></p>
+Uiteindelijk komen we bij het Lago Castel. 
+<p align="center"><img id="fotobreed" src="Wandelingen/foto256.jpg" /><br> 
+<em> Lago Castel </em></p>
+Er komen steeds meer grijze wolken, wel mooi, maar blijft het droog?
+<p align="center"><img id="fotohoog" src="Wandelingen/foto257.jpg" /><br>
+<em> grijze lucht.. </em></p>
+Indrukwekkend is ook dat er helemaal niemand te zien is, we zijn alleen op de wereld!
+<p align="center"><img id="fotobreed" src="Wandelingen/foto258.jpg" /><br> 
+<em> Lago Castel </em></p>
+we zien een grote afgrond...
+<p align="center"><img id="fotobreed" src="Wandelingen/foto259.jpg" /><br> 
+<em> wel mooi! </em></p>
+we gaan langs het meer en aan de andere langzaam weer naar beneden, over een breed pad
+<p align="center"><img id="fotobreed" src="Wandelingen/foto260.jpg" /><br> 
+<em> Fietje weet de weg </em></p>
+met de stokken...
+<p align="center"><img id="fotobreed" src="Wandelingen/foto261.jpg" /><br> 
+<em> Toch wel heel anders dan de heenweg! </em></p>
+Rond half 6 zijn we weer bij het hotel, terrasje pikken, douchen en eten! Ons laatste avondmaal (halve porties).
+
+De volgende dag, 4 september rijden we na het ontbijt terug naar huis, na eerst nog wat kaas gekocht te hebben in het winkeltje bij het hotel.
+Een fijne korte vakantie!
