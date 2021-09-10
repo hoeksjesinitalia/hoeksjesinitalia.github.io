@@ -162,7 +162,7 @@ we gaan langs het meer en aan de andere langzaam weer naar beneden, over een bre
 <p align="center"><img id="fotobreed" src="Wandelingen/foto260.jpg" /><br> 
 <em> Fietje weet de weg </em></p>
 met de stokken...
-<p align="center"><img id="fotobreed" src="Wandelingen/foto261.jpg" /><br> 
+<p align="center"><img id="fotobreed" src="Wandelingen/foto262.jpg" /><br> 
 <em> Toch wel heel anders dan de heenweg! </em></p>
 Rond half 6 zijn we weer bij het hotel, terrasje pikken, douchen en eten! Ons laatste avondmaal (halve porties).
 
