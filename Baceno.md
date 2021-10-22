@@ -79,3 +79,5 @@ Bij de deur nog een fantastische schildering van een demon:
 <em> de kerk van Baceno </em></p>
 Plots wordt duidelijk dat de kerk in gebruik is, de mensen in een zijkapel kijken gestoord op en het is tijd om eruit te gaan. 
 we lopen het stadje weer in en komen weer bij Klaartje. Het was een geweldige wandeling die we zeker nog gaan overdoen!
+
+En inderdaad hebben we het overgedaan: op 21 oktober doen we deze wandeling samen met Selwyn. 's Morgens regent het, maar volgens Selwyn is dat juist mooi voor de foto's. Ik hoop echter op mooier weer! Selwyn rijdt ons naar Baceno toe. We beginnen nu bij de kerk. Omdat er een begrafenis is besluiten we de kerk als laatste te bekijken. 
