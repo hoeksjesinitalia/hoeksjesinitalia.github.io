@@ -20,5 +20,5 @@ Naar Agrano, een dorpje (680 inwoners) bij Omegna aan het Ortameer in Piemonte. 
   * [Wandelingen Mei](./Wandelingen Mei.md)
       * [Antrona](./Antrona.md)
       * [Baceno](./Baceno.md)
-  * [Wandelingen Juli] (./Wandelingen Juli.md)
+  * [Wandelingen Juli](./Wandelingen Juli.md)
   * [Wandelingen Augustus](./Wandelingen Augustus.md)      
