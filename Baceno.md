@@ -134,3 +134,20 @@ we gaan weer terug naar de kerk en komen nog langs een lief huisje met een bron.
 We nemen even de tijd om nog wat water uit de bron te pakken.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto280.jpg" /><br>
 <em> ons Selwynneke </em></p>
+Terug bij de kerk binden we Fido weer vast maar deze keer zet hij het niet op een huilen en kunnen we rustig foto's maken!
+<p align="center"><img id="fotohoog" src="Wandelingen/foto281.jpg" /><br>
+<em> mooie muurschilderingen </em></p>
+<p align="center"><img id="fotobreed" src="Wandelingen/foto282.jpg" /><br>
+<em> en plafondschilderingen </em></p>
+<p align="center"><img id="fotohoog" src="Wandelingen/foto283.jpg" /><br>
+<em> San Gaudenzio </em></p>
+De kerk is naar deze heilige genoemd:La chiesa di San Gaudenzio. San Gaudenzio was een theoloog en schrijver uit de vierde eeuw na Christus en werd - tegen zijn wil- tot de 8e bisschop van Brescia gewijd door Sant' Ambrogio, na de dood van St. Filastrio, in 387. Hij leefde ten tijde van de keizer Honorius die de keizerlijke troon verplaatste van Milaan naar Ravenna. Hij maakte ook de inval mee van de Visigoten onder leiding van Alaric in 402. 25 oktober is zijn feestdag. 
+In de muurschildering van het laatsteavondmaal zou Jezus zijn geliefde leerling Johannes omarmen, maar zoals zo vaak lijkt het er meer op dat hij een vrouw vast heeft, Maria Magdalena....
+<p align="center"><img id="fotobreed" src="Wandelingen/foto284.jpg" /><br>
+<em> het laatste avondmaal </em></p>
+Weer buiten genieten we nog even van het uitzicht op de bergen!
+<p align="center"><img id="fotobreed" src="Wandelingen/foto285.jpg" /><br>
+<em> uitzicht vanaf de kerk</em></p>
+We lopen terug naar de auto en Selwyn rijdt ons weer terug naar Agrano, onder begeleiding van zijn copiloot...
+<p align="center"><img id="fotobreed" src="Wandelingen/foto286.jpg" /><br>
+<em> Pandaatje</em></p>
