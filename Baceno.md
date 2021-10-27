@@ -123,3 +123,14 @@ Onze Boeddha gaat ondertussen in meditatie en gaat in een diepe trance terwijl h
 We gaan de berg op en daarna weer naar beneden, terug naar de rivier, over een andere brug, deze rode.
 <p align="center"><img id="fotohoog" src="Wandelingen/foto276.jpg" /><br>
 <em> de volgende brug </em></p>
+We kwamen ook nog wat wild tegen in het bos...
+<p align="center"><img id="fotohoog" src="Wandelingen/foto277.jpg" /><br>
+<em> de trol onder de brug </em></p>
+<p align="center"><img id="fotobreed" src="Wandelingen/foto278.jpg" /><br>
+<em> de bergtoppen tegenover ons </em></p>
+we gaan weer terug naar de kerk en komen nog langs een lief huisje met een bron. 
+<p align="center"><img id="fotohoog" src="Wandelingen/foto279.jpg" /><br>
+<em> blijkbaar ook nog met zonnepaneeltjes voor warm water </em></p>
+We nemen even de tijd om nog wat water uit de bron te pakken.
+<p align="center"><img id="fotohoog" src="Wandelingen/foto280.jpg" /><br>
+<em> ons Selwynneke </em></p>
