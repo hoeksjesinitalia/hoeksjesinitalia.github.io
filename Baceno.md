@@ -74,7 +74,7 @@ Bij het altaar is een muurschildering over de hele muur
 Ook Adam en Eva ontbreken niet, de slang ziet er wel heel erg vrouwelijk uit...
 <p align="center"><img id="fotobreed" src="Wandelingen/foto211.jpg" /><br>
 <em> de verleiding </em></p>
-Bij de deur nog een fantastische schildering van een demon:
+Boven de kruisiging nog een fantastische schildering van een demon:
 <p align="center"><img id="fotohoog" src="Wandelingen/foto212.jpg" /><br>
 <em> de kerk van Baceno </em></p>
 Plots wordt duidelijk dat de kerk in gebruik is, de mensen in een zijkapel kijken gestoord op en het is tijd om eruit te gaan. 
