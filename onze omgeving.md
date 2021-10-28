@@ -224,7 +224,7 @@ Het eiland van Orta wordt hier ook afgebeeld:
  
  
  
-## Van Pratolungo naar Pettenasco en weer terug (ronde)
+ ## Van Pratolungo naar Pettenasco en weer terug (ronde)
 Wanneer we in Pratolungo van het ons bekende pad afkomen en naar de kerk van Pratolungo lopen begint daar een zeer steile weg naar beneden.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto154.jpg" /><br>
 <em> Even samen op de foto </em></p
