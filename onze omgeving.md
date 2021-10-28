@@ -174,6 +174,9 @@ Het straatje bergop gaat naar de kerk,de parochiekerk di Santa Maria Assunta.
 Kees maakt een voorbereidende schets om het eiland te gaan schilderen
  <p align="center"><img id="fotohoog" src="Wandelingen/foto310.jpg" /><br>
 <em> Fido houdt de wacht </em></p> 
+Dit is het resultaat:
+ <p align="center"><img id="fotobreed" src="Wandelingen/foto311.jpg" /><br>
+<em> Schilderwerkstuk Kees </em></p
 Onderweg komen we nog mooie "heilige" muurschilderingen tegen
  <p align="center"><img id="fotobreed" src="Wandelingen/foto293.jpg" /><br>
 <em> Maria speelt hier wel de hoofdrol </em></p
