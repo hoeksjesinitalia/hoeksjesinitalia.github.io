@@ -151,7 +151,7 @@ De relikwieën van de heilige Julius worden nog steeds bewaard in de Basilica di
 San Giulio (Sint Julius) is de patroonheilige van de metselaars, dankzij zijn activiteit als kerkbouwer en wordt vaak afgebeeld met gereedschap in de hand.
   <p align="center"><img id="fotohoog" src="Wandelingen/foto153.jpg" /><br>
 <em> ook Fido geniet van het uitzicht </em></p>
-##Orta
+  ## Orta
 Orta is een gezellig stadje met een plein aan het water, waar de boten vertrekken naar het eiland en soms naar de overkant, naar Pelle. 
  <p align="center"><img id="fotohoog" src="Wandelingen/foto308.jpg" /><br>
 <em> pittoresk straatje </em></p>
@@ -188,7 +188,7 @@ Vanuit het pleintje van de kerk uitzicht op het eiland:
   <p align="center"><img id="fotohoog" src="Wandelingen/foto307.jpg" /><br>
 <em> Fransiscus is blijkbaar diegene in onderbroek </em></p>
 Het park krijgt een beetje een Efteling gehalte met deze poppen...
- ##Legro
+ ## Legro
  Vlakbij Orta ligt het dorp Legro, beroemd om de muurschilderingen op de huizen. 
  We drinken een kopje koffie op het stationnetje Orta-Miasino en volgen de route.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto294.jpg" /><br>
