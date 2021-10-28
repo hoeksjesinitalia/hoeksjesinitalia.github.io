@@ -151,7 +151,79 @@ De relikwieën van de heilige Julius worden nog steeds bewaard in de Basilica di
 San Giulio (Sint Julius) is de patroonheilige van de metselaars, dankzij zijn activiteit als kerkbouwer en wordt vaak afgebeeld met gereedschap in de hand.
   <p align="center"><img id="fotohoog" src="Wandelingen/foto153.jpg" /><br>
 <em> ook Fido geniet van het uitzicht </em></p>
-
+##Orta
+Orta is een gezellig stadje met een plein aan het water, waar de boten vertrekken naar het eiland en soms naar de overkant, naar Pelle. 
+ <p align="center"><img id="fotohoog" src="Wandelingen/foto308.jpg" /><br>
+<em> pittoresk straatje </em></p>
+<p align="center"><img id="fotobreed" src="Wandelingen/foto287.jpg" /><br>
+<em> de ijssalon </em></p
+Aan het begin van het plein (Piazza Motta) staat een mooi oud gebouwtje. Daarvoor, op de hoek, hebben we meermaals geluncht, lekker!
+<p align="center"><img id="fotobreed" src="Wandelingen/foto288.jpg" /><br>
+<em> het raadhuis? </em></p>
+Vanuit het plein heb je een fantastisch uitzicht op het eiland
+<p align="center"><img id="fotobreed" src="Wandelingen/foto289.jpg" /><br>
+<em> in de verte bovenop een top de kerk van Sasso... </em></p
+ <p align="center"><img id="fotohoog" src="Wandelingen/foto290.jpg" /><br>
+<em> straatje omhoog naar de kerk </em></p>
+Bij goed weer (hier is het regenachtig) zit het plein vol met toeristen op de terrasjes.
+ <p align="center"><img id="fotobreed" src="Wandelingen/foto291.jpg" /><br>
+<em> helaas is de Albergo al jaren niet meer in gebruik... </em></p
+Het straatje bergop gaat naar de kerk,de parochiekerk di Santa Maria Assunta.
+ <p align="center"><img id="fotohoog" src="Wandelingen/foto292.jpg" /><br>
+<em> de kerk </em></p> 
+Kees maakt een voorbereidende schets om het eiland te gaan schilderen
+ <p align="center"><img id="fotohoog" src="Wandelingen/foto310.jpg" /><br>
+<em> Fido houdt de wacht </em></p> 
+Onderweg komen we nog mooie "heilige" muurschilderingen tegen
+ <p align="center"><img id="fotobreed" src="Wandelingen/foto293.jpg" /><br>
+<em> Maria speelt hier wel de hoofdrol </em></p
+ 
+ Bij Orta ligt de Sacro Monte: een berg vol kapellen die allen gewijd zijn aan het leven van Sint Fransiscus. 
+  <p align="center"><img id="fotohoog" src="Wandelingen/foto305.jpg" /><br>
+<em> een voorstelling uit het leven van Fransiscus, vraag me niet welke </em></p>
+Vanuit het pleintje van de kerk uitzicht op het eiland:
+<p align="center"><img id="fotobreed" src="Wandelingen/foto306.jpg" /><br>
+<em> Het eiland weer, van bovenaf </em></p
+ een andere scene van Fransiscus:
+  <p align="center"><img id="fotohoog" src="Wandelingen/foto307.jpg" /><br>
+<em> Fransiscus is blijkbaar diegene in onderbroek </em></p>
+Het park krijgt een beetje een Efteling gehalte met deze poppen...
+ ##Legro
+ Vlakbij Orta ligt het dorp Legro, beroemd om de muurschilderingen op de huizen. 
+ We drinken een kopje koffie op het stationnetje Orta-Miasino en volgen de route.
+<p align="center"><img id="fotobreed" src="Wandelingen/foto294.jpg" /><br>
+<em> meer dan levensgroot </em></p
+ <p align="center"><img id="fotobreed" src="Wandelingen/foto295.jpg" /><br>
+<em> licht en schaduw </em></p
+ We maken vele foto's maar laten hier maar enkele zien. Hier een met uitbundige kleuren.
+  <p align="center"><img id="fotobreed" src="Wandelingen/foto296.jpg" /><br>
+<em> felle kleurtjes </em></p
+ halverwege zien we dat de muurschilderingen als onderwerp de Italiaanse film hebben
+ <p align="center"><img id="fotohoog" src="Wandelingen/foto297.jpg" /><br>
+<em> oude film denk ik </em></p>
+ Deze vond ik mooi vanwege de intense kleur:
+  <p align="center"><img id="fotobreed" src="Wandelingen/foto298.jpg" /><br>
+<em> mooi blauw, ook uit een film (Riso amaro?) </em></p
+ Voor ons onbekend, maar voor Italianen zullen het wel beroemde sterren zijn...
+ <p align="center"><img id="fotobreed" src="Wandelingen/foto299.jpg" /><br>
+<em> bekende Italianen? </em></p
+ Deze was heel dreigend, vooral door de enorme grootte:
+  <p align="center"><img id="fotobreed" src="Wandelingen/foto300.jpg" /><br>
+<em> mondje dicht... </em></p
+ En deze is ook wel eng:
+   <p align="center"><img id="fotobreed" src="Wandelingen/foto301.jpg" /><br>
+<em> ik wil er uit! </em></p
+ en toch nog engelen:
+  p align="center"><img id="fotobreed" src="Wandelingen/foto302.jpg" /><br>
+<em> the stairway to heaven </em></p
+   p align="center"><img id="fotobreed" src="Wandelingen/foto303.jpg" /><br>
+<em> deze schildering is duidelijk vanuit het plein van Orta gedaan </em></p
+Het eiland van Orta wordt hier ook afgebeeld:
+  p align="center"><img id="fotobreed" src="Wandelingen/foto304.jpg" /><br>
+<em> het eiland </em></p
+ 
+ 
+ 
 ## Van Pratolungo naar Pettenasco en weer terug (ronde)
 Wanneer we in Pratolungo van het ons bekende pad afkomen en naar de kerk van Pratolungo lopen begint daar een zeer steile weg naar beneden.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto154.jpg" /><br>
@@ -178,5 +250,4 @@ Na de korte pauze nemen we een andere route terug (zodat we niet die hele steile
 maar het pad loopt door het bos en we voelen er weinig van. Er staan mooie bloempjes langs het pad. Het lijken kleine,wilde narcisjes.
   <p align="center"><img id="fotohoog" src="Wandelingen/foto161.jpg" /><br>
 <em> Narcisjes? </em></p>
-uiteindelijk komen we weer bij kerk uit, lopen een stukje over de weg naar het pad dat naar Agrano leidt. 
 
