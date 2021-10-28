@@ -220,10 +220,8 @@ Het park krijgt een beetje een Efteling gehalte met deze poppen...
 <em> deze schildering is duidelijk vanuit het plein van Orta gedaan </em></p
 Het eiland van Orta wordt hier ook afgebeeld:
   p align="center"><img id="fotobreed" src="Wandelingen/foto304.jpg" /><br>
-<em> het eiland </em></p.
- 
- 
-## Van Pratolungo naar Pettenasco en weer terug (ronde)
+<em> het eiland </em></p
+ ## Pratolungo naar Pettenasco en weer terug (ronde)
 Wanneer we in Pratolungo van het ons bekende pad afkomen en naar de kerk van Pratolungo lopen begint daar een zeer steile weg naar beneden.
 <p align="center"><img id="fotobreed" src="Wandelingen/foto154.jpg" /><br>
 <em> Even samen op de foto </em></p
